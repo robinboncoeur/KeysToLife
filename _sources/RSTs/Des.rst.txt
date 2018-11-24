@@ -6,6 +6,8 @@ Writings by Desmond Ford
 The Gospel Message
 ******************
 
+.. _df-GospelMessage:
+
 The Gospel is for Free
 ======================
 *Blessed are the poor in spirit.* - Matthew 5:3
@@ -160,7 +162,7 @@ The Cross is a microcosm of the universe that unfolds the heart of God. God is a
 
 The Cross of Christ also proclaims, “There's more to come! Life is not just pain and death. There's resurrection and glory!" That, too, is part of the meaning of the Cross. – Des Ford
 
-
+Back to top of: :ref:`df-GospelMessage`
 
 
 
@@ -179,6 +181,7 @@ The Cross of Christ also proclaims, “There's more to come! Life is not just pa
     :align: center
     :width: 300px
 
+.. _df-ForByGrace:
 
 For By Grace are You Saved
 **************************
@@ -336,6 +339,8 @@ No wonder the Spirit painted a gloriously exciting picture in “The Parable of 
 Are you that joyful treasure-hunter? If not, why not?
 
 Come. All is free! Come. All is grace! – Desmond Ford
+
+Back to top of: :ref:`df-ForByGrace`
 
 
 
@@ -737,7 +742,7 @@ Please notice the grounds on which Jesus can say to these guilty men and women, 
 There is only one place of peace, and that's in the wounds of Jesus. – Des Ford
 
 
-  * back to: :ref:`df-ChristOurSalvation`
+Back to top of: :ref:`df-ChristOurSalvation`
 
 
 
@@ -759,6 +764,7 @@ There is only one place of peace, and that's in the wounds of Jesus. – Des For
     :align: center
     :width: 300px
 
+.. _df-ShouldWeLive:
 
 How, then, Should We Live?
 **************************
@@ -990,6 +996,8 @@ But the way of conquest over sin is the way of indirection. The power of sin is 
 
 We are those who have died to sin; how can we live in it any longer? … For we know that our old self was crucified with Him so that the body ruled by sin might be done away with, that we should no longer be slaves to sin… count yourselves dead to sin but alive to God in Christ Jesus. (Romans 6:2,6,11). – Des Ford
 
+Back to top of: :ref:`df-ShouldWeLive`
+
 
 
 
@@ -1008,6 +1016,7 @@ We are those who have died to sin; how can we live in it any longer? … For we 
     :align: center
     :width: 300px
 
+.. _df-OurFaithComes:
 
 Our Faith comes from Him
 ************************
@@ -1106,4 +1115,4 @@ Consider the **most frightening aspect** of Christ’s words: “You must be bor
 
 Which of us would claim a character as lofty as his or a mind as enlightened as his? Yet even Nicodemus needed to be born again. No wonder that when Wesley was asked why he preached so often on the text "You must be born again," his reply was, "Because 'you must be born again.'" – Desmond Ford
 
-
+Back to top of: :ref:`df-OurFaithComes`
