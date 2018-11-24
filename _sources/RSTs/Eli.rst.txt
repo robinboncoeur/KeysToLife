@@ -2,6 +2,7 @@
 Writings by Eliezer Gonzalez
 ############################
 
+.. _eg-TheGospel:
 
 The Gospel
 **********
@@ -192,7 +193,7 @@ He had come to a world that slept in ignorance of its need of a Saviour, to be t
 
 Wise men brought Him gifts. But the wisest men of all accept Him as the Gift Himself. – Eliezer Gonzalez
 
-
+Back to top of: :ref:`eg-TheGospel`
 
 
 
@@ -211,6 +212,7 @@ Wise men brought Him gifts. But the wisest men of all accept Him as the Gift Him
     :align: center
     :width: 300px
 
+.. _eg-Forgiveness:
 
 Forgiveness
 ***********
@@ -437,6 +439,8 @@ However, in the days before His death, Jesus had in effect told the Jews that th
 
 Like us, those who crucified Him knew in part, and in part they didn’t know. But Christ’s great heart of love looks with mercy on our ignorance and weakness, in His willingness to forgive even the greatest of all sins (Mark 3:28). How is this possible? Because the Cross brings together the greatest sin (2 Cor 5:21), and the greatest love – and love won. – Eliezer Gonzalez
 
+Back to top of: :ref:`eg-Forgiveness`
+
 
 
 
@@ -453,7 +457,7 @@ Like us, those who crucified Him knew in part, and in part they didn’t know. B
     :width: 300px
 
 
-========================================================================
+.. _eg-Challenges:
 
 Challenges of Life
 ******************
@@ -735,6 +739,8 @@ The other verse says, "There is no difference ... the same Lord is Lord of all a
  
 The blessing that the Lord has for us all is the forgiveness of sin and the gift of eternal life. This is His gift for all who believe, and it is that same gift that underscores our equality in the Kingdom of Heaven. There are no first or second-class seats at the foot of the Cross. – Eliezer Gonzalez
 
+Back to top of: :ref:`eg-Challenges`
+
 
 
 
@@ -757,7 +763,7 @@ The blessing that the Lord has for us all is the forgiveness of sin and the gift
     :width: 300px
 
 
-========================================================================
+.. _eg-Reality:
 
 The Reality of God
 ******************
@@ -873,6 +879,8 @@ Because we live in this world, there’s always some bitter water just around th
  
 That piece of wood represents the Cross of Calvary. It is the Cross of Christ by which the transforming grace of heaven has touched this earth, bringing a flood of sweet living water for all who believe. – Eliezer Gonzalez
 
+Back to top of: :ref:`eg-Reality`
+
 
 
 
@@ -887,7 +895,7 @@ That piece of wood represents the Cross of Calvary. It is the Cross of Christ by
     :width: 300px
 
 
-========================================================================
+.. _eg-Faith:
 
 Faith
 *****
@@ -970,6 +978,8 @@ In the Kingdom of God we are connected with Him all the time, so that even befor
 
 Jesus has an open-door policy: it’s called prayer. – Eliezer Gonzalez
 
+Back to top of: :ref:`eg-Faith`
+
 
 
 
@@ -986,7 +996,7 @@ Jesus has an open-door policy: it’s called prayer. – Eliezer Gonzalez
     :width: 300px
 
 
-========================================================================
+.. _eg-Christianity:
 
 Christianity Today
 ******************
@@ -1058,3 +1068,5 @@ Then Jesus goes to the tomb and cries out with the voice of the Son of the Livin
 I don’t know how this year was for you, but I’m sure it wasn’t all good. We call it “the end of the year,” but the question is, “Do you believe?”
  
 If you believe in the One who is the First and the Last, the Beginning and the End, the Resurrection and the Life, then all that seems an end, is only ever a new beginning in disguise. Do you believe? – Eliezer Gonzalez
+
+Back to top of: :ref:`eg-Christianity`
