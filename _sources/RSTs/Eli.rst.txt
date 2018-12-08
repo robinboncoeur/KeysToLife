@@ -255,6 +255,22 @@ Back to top of: :ref:`eg-TheGospel`
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 .. image:: ../images/Flourish03.png
     :align: center
     :width: 300px
@@ -555,6 +571,14 @@ You are forgiven. You are accepted. You are loved. You are his. – Eliezer Gonz
 
 
 Back to top of: :ref:`eg-Forgiveness`
+
+
+
+
+
+
+
+
 
 
 
@@ -964,6 +988,19 @@ Back to top of: :ref:`eg-Challenges`
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
 .. image:: ../images/Flourish03.png
     :align: center
     :width: 300px
@@ -1210,6 +1247,25 @@ Back to top of: :ref:`eg-Reality`
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 .. image:: ../images/Flourish03.png
     :align: center
     :width: 300px
@@ -1361,6 +1417,23 @@ Don’t allow unbelief to ruin the wonderful moments that Christ has in store fo
 
 
 Back to top of: :ref:`eg-Faith`
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1555,6 +1628,11 @@ Don’t be frightened at the huge size of what Jesus asks us to do: to take the 
 All Jesus asks is that we give him what he has already put in our hands, no matter how humble or small, and he will do the rest. When you offer Jesus what’s in your hand, that’s when miracles happen.
 
 Check what’s in your hands today. In faith, offer it to Jesus. Then stand back and watch what happens!
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
 
 Beyond Indoctrination
