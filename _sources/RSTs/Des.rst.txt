@@ -2771,6 +2771,18 @@ You Need Never Walk Alone
 =========================
 *All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations… and lo, I am with you always, to the close of the age.* - Matthew 28: 18-20 RSV
 
+We need God. Everything you and I see is transient. Everything we feel, taste, touch – everything is temporary.
+
+There is One who overcame the world, and who said,
+
+    *"All authority in heaven and on earth has been given to me… lo, I am with you always, to the close of the age."* Matthew 28:18-20 RSV
+
+When our Lord Jesus rose from the dead, he breathed upon his disciples and said, "Receive the Holy Spirit" (John 20:22). By so doing, he was saying, "Because of the Cross you need never walk alone. Because of the Cross, the omnipotent, omnipresent, omniscient God has come to live beside you – and inside you – now and forever." You see, the coming of the Spirit is the coming of God. Jesus said, "I will not leave you comfortless: I will come to you" (John 14:8 KJV).
+
+It’s true that everything passes away, but not the person who has made Jesus his Saviour. On his last earthly night with his disciples, Jesus said to them,
+
+    *Because I live, you will live also (John 14:19). If anyone loves Me, he will keep My word; and My Father will love him, and We will come to him and make Our home with him.* John 14:23, NKJV
+
 From time to time we feel as barren and as fruitless as Aaron’s rod before it budded (Numbers 17). We sometimes feel as empty as the widow’s cruse of oil (1 Kings 17), as desperate as sinking Peter (Matthew 14), and as frustrated as the disciples who fished all night and took nothing in their nets (Luke 5).
 
 Read these stories carefully, for this is a common, recurring, human experience. But is it necessary?
@@ -3656,6 +3668,26 @@ John the Baptist is presented as having his doubts concerning the character of J
 Luke quotes the scorn of unbelievers who called Christianity a superstition (Acts 25:18-19). In the Gospels we find the surprising note that even Christ's own relatives thought he might be going insane. When our Lord's post-resurrection appearances are described, he is presented as appearing to believers only. Wouldn't it have made a better story if the Gospel writers had pictured him as appearing to Pilate and Herod?
  
 The authors of the New Testament were more interested in the facts, than the impression their story might give. The New Testament has the ring of truth. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+How Abraham Was Justified
+=========================
+
+*Abram believed the Lord, and he credited it to him as righteousness.* - Genesis 15:6, NIV
+
+The first time the word “righteousness” is mentioned in Scripture is in Genesis 15:6. This is also the first verse containing the word “believed”.
+
+Abraham was not declared righteous because of any of his good works, although he had done many. Neither did ceremonial nor ritualistic works justify him, for he was declared righteous before his circumcision. Nor was he justified on the ground of his faith, for it was yet imperfect.
+
+Abraham was justified as a result of the coming Seed, Jesus. **Faith was but the hand that received**. Faith is not the basis of God's gift. All are justified by means of faith, that is, through faith; but not because of, or as a result of, faith. Justification through faith means justification through Jesus.
+
+The way that Abraham was justified is the pattern for all of us. And how we all need justification! Not one of us is what we should be, could be, or would be. The perfect law demands not merely perfect outward performance but perfect attitude of heart, perfect motives from a perfect heart. We don’t have any of these to offer. – Des Ford
+
 
 
 
