@@ -303,10 +303,39 @@ Jesus is alive! He is still at work today! His story is not a story of the past,
 Will you allow Jesus to continue to work in your life? Accept him again as your Lord and Saviour, and thank him because he hasn’t finished with you yet, and that he has chosen you to be part of his story. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
+
+Avoid the Dull Mind ...
+=======================
+... **of Unbelief**
+
+*Then Jesus said to them, “You foolish people! Your dull minds keep you from believing all that the prophets talked about.”* - Luke 24:25, CEB
+
+Jesus was not talking to just the two disciples; he was talking to **everyone**.
+
+Jesus was not telling them that they needed to see him in the Old Testament. He was telling them that they needed understand that he was the whole point, hero, and reason, front and centre, foundation and object, of the entire Scriptures.
+
+Jesus was not telling them that they needed to understand the Messianic prophecies (in other words the “Messianic” parts of the Old Testament), he was telling them that they needed to understand his Cross and victory as the point of it all; in other words, Jesus was telling them that they needed to understand the Gospel.
+
+These people had been taught to read the Scriptures and to see in them anything but the Gospel. They saw history and moral instruction; they saw intellectual theology and wisdom, but they had missed the Gospel.
+
+It’s time to stop being foolish and dull. When you read the Bible and see the Gospel, your heart will burn within you with excitement! It’s time to read the Scriptures afresh! But we will only ever be able to understand them if the Christ of Emmaus is walking alongside us to open our eyes. Then, an exciting new beginning will come into your life! – Eliezer Gonzalez
 
 
 Back to top of: :ref:`eg-TheGospel`
+
+
+
+
+
+
+
+
+
+
 
 
 
