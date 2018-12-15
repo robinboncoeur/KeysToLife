@@ -258,6 +258,52 @@ We are not caught by surprise like those who don’t believe, and we do not desp
 So, we take heart! Through Christ’s victory at the Cross, God has already won the war on terror. There’s no place for fear in your life any more, if you trust in Christ. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus: ...
+==========
+... **the Ultimate Evidence for God**
+
+*In the past God spoke to our ancestors through the prophets at many times and in various ways, but in these last days he has spoken to us by his Son.* - Hebrews 1:1–2, NIV
+
+Until the coming of Jesus into the world, humanity sought for God, as if grasping at shadows. God had revealed himself, “through the prophets”; in other words, always through an intermediary and not directly.
+ 
+I have a friend who gave up believing in God, and the reason he gave me was that if a loving God existed, he would have revealed himself directly to my friend. However, that’s precisely what God has done!
+ 
+When people asked Jesus for evidence, he told them that he was the ultimate evidence for God:
+ 
+    *Philip said, “Lord, show us the Father and that will be enough for us.” Jesus answered: “Don’t you know me, Philip, even after I have been among you such a long time? Anyone who has seen me has seen the Father.”* John 14:8–9, NIV
+
+God decided to come and live with us for “such a long time,” as one of us (Matthew 1:23). Isn’t that so much better than appearing in some vision or dream to an individual? Jesus did what God could do, and that included obtaining forgiveness for the entire world at Calvary, and defeating death forever.
+
+Jesus is the ultimate evidence for God. What greater evidence could anyone ever want? – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+It Was Just the Beginning!
+==========================
+
+*In my former book, Theophilus, I wrote about all that Jesus began to do and to teach.* - Acts 1:1, NIV
+
+Do you ever wonder what Jesus is doing right now? Where is he when you need him?
+
+The words in the verse above are the ones with which Luke begins his second book about what Jesus did. This first book was of course the gospel that bears his name, and this second book is called the Acts of the Apostles. The Gospel of Luke is about “all that Jesus began to do and to teach.” The Acts of the Apostles is about all that Jesus continued to do and to teach “after his suffering” (v.3).
+
+What this means is that although his suffering for your sin (the atonement) is finished, Jesus’ work in this world or in your life is not finished yet. The story of Jesus’ life, death, and resurrection is only the beginning of your own story, which he carefully continues to craft.
+
+Jesus is alive! He is still at work today! His story is not a story of the past, but a story of today!
+
+Will you allow Jesus to continue to work in your life? Accept him again as your Lord and Saviour, and thank him because he hasn’t finished with you yet, and that he has chosen you to be part of his story. – Eliezer Gonzalez
+
+
+
 
 
 Back to top of: :ref:`eg-TheGospel`
@@ -633,6 +679,29 @@ It’s taken me a long time to realise this truth. That’s because all of my re
 I used to think that the Bible was all about the grandest sweep of history, and grand philosophy and prophecy, and about advice about how to live. But while all those things are there, that’s not what the Bible is all about. The Bible, from the beginning to the end, is all about God’s forgiving grace (Isaiah 53; Luke 1:76–78; 3:1–3; Acts 2:38; 13:38–40).
  
 Let’s not complicate the Gospel. We need to see afresh the sacrificial love of Christ, so that we can understand that what we need is forgiveness, and then we need to simply accept it as God’s gracious gift. And everything else just flows from there. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+A Different Kind of Love
+========================
+
+*But God demonstrates his own love for us in this: While we were still sinners, Christ died for us.* - Romans 5:8, NIV
+
+What’s your experience of love been? If love were a shop, would you go there again?
+
+Beyond the fairy-tale illusions of childhood, most people only ever know love as a constant tug-of-war in which you only ever feel “loved” if you give in return. And too often our hearts are crushed underfoot.
+
+But all models of human love are basically flawed. Calvary is God’s earth-shattering revelation of a new reality that he brings into the world. The apostle Paul describes it in Romans 5:8. The word “but” means that this is *different* to any other kind of love.
+
+The word “demonstrates” means that God doesn’t just tell us about his love. He has demonstrated it. The love of God has been demonstrated as an historical and relational reality, so that none can doubt it, and all can experience it.
+
+The phrase “his own love” means that this love is as elevated from all human forms of love as the furthest stars are from the earth. God demonstrated it at Calvary. God didn’t wait until we changed our lives, improved our characters or reformed ourselves. While we were still sinners, he died for us. The shepherd went out to look for his lost sheep, the father of the prodigal ran down the road to welcome us home. 
+
+That’s true love. – Eliezer Gonzalez
 
 
 
@@ -1165,10 +1234,37 @@ God is calling you to share and support the Gospel of the Kingdom of life with e
 Are you happy to sit by yourself in a valley of dry bones? No? Well, what are you waiting for? Start speaking to those bones! – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
+
+There’s Always Bread ...
+========================
+... **in the House of Bread**
+
+*Man shall not live on bread alone, but on every word that comes from the mouth of God.* - Matthew 4:4, NIV
+
+In the story of Ruth, she and Naomi, her mother-in-law, travel from Moab to Bethlehem because they have heard that there is food in Bethlehem (1:6). That shouldn’t be so strange, because the name “Bethlehem” means literally, the “House of Bread.” The whole story of Ruth, points us powerfully toward the coming, bread-providing Messiah, who would feed His people, the One who would be literally be born in Bethlehem.
+
+When His disciples came back from buying food in the Samaritan village, they found Jesus sharing the Good News with a despised Samaritan woman. He said to them, “I am fed by doing the will of the one who sent me and by completing his work” (John 4:34). Jesus was trying to teach the disciples that the Bread of Life that came from Bethlehem was not only for Bethlehem, but that it was to feed the whole world, even a woman of Samaria.
+
+Can you and I be fed in this way too? Jesus declared, “I am the living bread that came down from heaven. Whoever eats this bread will live forever, and the bread that I will give for the life of the world is my flesh” (John 6:51).
+
+Because of Calvary, none need ever go hungry again. There’s always bread in Bethlehem. – Eliezer Gonzalez
 
 
 Back to top of: :ref:`eg-Challenges`
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1397,6 +1493,7 @@ We have a Father who sees us from afar, and saves us from our foolishness. – E
 
 The Father Never Forsakes His Children
 ======================================
+
 *My God, my God, why have you forsaken me?* - Matthew 27:46
 
 Have you ever felt forsaken by God? I have. We’re all human. But one of the hardest lessons we must learn is not to trust our own feelings. Jesus felt forsaken by God while on the cross as well.
@@ -1425,6 +1522,7 @@ The lesson of the Cross is that the Father never forsakes his children, even in 
 
 Jesus Reigns!
 =============
+
 *The Lord says to my lord: “Sit at my right hand until I make your enemies a footstool for your feet.” The Lord will extend your mighty scepter from Zion, saying, “Rule in the midst of your enemies!”* - Psalm 110:1–2, NIV
 
 The passage from the Old Testament that is most often cited in the New is Psalm 110.  The apostolic church saw this Psalm as referring to the risen, ascended Messiah, and the Kingdom that he had firmly established in this world at the Cross. They understood that they were living in the time of the ‘until’—the time during which Christ is sitting at the right hand of the Father, waiting until the time his Kingdom physically overthrows all the kingdoms of this world.
@@ -1443,6 +1541,7 @@ We announce Christ’s kingdom wherever we go, while we wait until the time when
 
 The Unbeliever and the Acorn
 ============================
+
 *I want to know Christ and experience the mighty power that raised him from the dead.* - Philippians 3:10, NLT
 
 In Italy is the centuries-old grave of an unbeliever. Before he died, he ordered a huge stone slab for his grave to prevent him from being raised from the dead if there was, after all, a resurrection. The sign announced: “I do not want to be raised from the dead. I don’t believe in it.”
@@ -1461,7 +1560,8 @@ Today, the mighty resurrection power of Christ is shed abroad to all who believe
 
 You Can’t Bribe God
 ===================
-*Is anyone thirsty? Come and drink—even if you have no money! Come, take your choice of wine and milk—it’s all free!* - Isaiah 55:1, TLB
+
+*Is anyone thirsty? Come and drink — even if you have no money! Come, take your choice of wine and milk — it’s all free!* - Isaiah 55:1, TLB
 
 The story of Simon the Sorcerer in Acts 8 illustrates how Christianity was misinterpreted even in the times of the earliest church. Simon was a magician in Samaria. He liked to portray himself as having great wonder working powers. So he offered the apostles money so that he could receive the power of the Holy Spirit (Acts 8:18–19).
  
@@ -1481,6 +1581,7 @@ You can’t bribe God (Acts 8:20). All religion that tries to offer God somethin
 
 Costly Grace
 ============
+
 *For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life.* - John 3:16, NIV
 
     **Costly grace is the gospel which must be sought again and again and again, the gift which must be asked for, the door at which a man must knock. Such grace is costly because it calls us to follow, and it is grace because it calls us to follow Jesus Christ. It is costly because it costs a man his life, and it is grace because it gives a man the only true life. It is costly because it condemns sin, and grace because it justifies the sinner. Above all, it is costly because it cost God the life of his Son: ‘Ye were bought at a price’, and what has cost God much cannot be cheap for us. Above all, it is grace because God did not reckon his Son too dear a price to pay for our life, but delivered him up for us. Costly grace is the Incarnation of God.** – Dietrich Bonhoffer
@@ -1497,6 +1598,7 @@ The only one that can save me is the grace that cost God everything and is free 
 
 Jesus is the True Temple
 ========================
+
 *I was glad when they said to me, “Let us go to the house of the Lord.”* - Psalm 122:1; NASB
 
 Sometimes, the building in which Christians meet is called their “church,” the “house of the Lord,” the “sanctuary,” or even the “temple.” The Old Testament is full of expressions that point to how good it is to be in the “house of the Lord.” However, this expression only ever refers to the Jewish temple in the city of Jerusalem. This, and everything associated with it, are called “shadows of things to come” (Colossians 2:17.)
@@ -1515,6 +1617,7 @@ The Bible tells us that one day soon there will be no more temple – not in hea
 
 God’s Church is Unlimited
 =========================
+
 *For this reason I bow my knees before the Father, from whom every family in heaven and on earth derives its name.* - Ephesians 3:14–15, NIV
 
 As Neil Armstrong gazed at the earth from space, he is reported to have reflected that, “[i]t suddenly struck me that that tiny pea, pretty and blue, was the Earth. I put up my thumb and shut one eye, and my thumb blotted out the planet Earth. I didn’t feel like a giant. I felt very, very small.”
@@ -1537,6 +1640,7 @@ There’s nothing small about God’s church. So, let’s live big for Jesus! �
 
 Jesus Is Right Here With You
 ============================
+
 *He asked her, “Woman, why are you crying? Who is it you are looking for?” Thinking he was the gardener, she said, “Sir, if you have carried him away, tell me where you have put him, and I will get him.” Jesus said to her, “Mary.”* – John 20:15-16
 
 What is the most important question in the world? It is this one: “Who are you looking for?” Everyone is looking for someone.
@@ -1557,6 +1661,7 @@ The rebuke of the Lord is the gentlest and most beautiful that could ever be ima
 
 The Lord Has Provided
 =====================
+
 *“The fire and wood are here,” Isaac said, “but where is the lamb for the burnt offering?” Abraham answered, “God himself will provide the lamb for the burnt offering, my son.”* - Genesis 22:7–8, NIV
 
 The lesson that Abraham learned when God called him to sacrifice his son was that God will provide. For a sacrifice, three things were required. Wood, a fire, and a lamb. All of these things were usually carried with them. Most importantly, there could not be a sacrifice without a lamb.
@@ -1620,9 +1725,107 @@ After his resurrection, Jesus said to Thomas,
 There is a blessing for those who experience reality through the eyes of faith. To do that is to see God. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Beauty Points to God
+====================
+
+*He has made everything beautiful in its time.* - Ecclesiastes 3:11. NIV
+
+I love sunsets, especially when they occur over the water.
+ 
+Beauty itself is, in fact, a great mystery. Why is it that our world overflows with beauty, rather than random chaos? Why is it that the colours of sunset are so perfectly colour-coordinated? Surely that speaks of design?
+ 
+Why is it that we seek out beautiful sights and things, not for any other purpose, but to for the sake of beauty itself? Doesn’t that infer that we are naturally drawn to something beyond us, something transcendent that doesn’t respond to the immediate and practical needs of survival?
+ 
+The other amazing thing about beauty is that we don’t tend to disagree very much about what is beautiful. There’s a universal dimension to beauty. In spite of a few cultural differences, we tend to be in general agreement about what is beautiful.
+ 
+Why is this so? To my mind, the answer lies in the existence of an absolute Being over and above us all, who values beauty for its own sake, and has created us to value it also. That kind of God – one who values love, goodness, and beauty – is One that I can unreservedly worship.
+ 
+My God is a God who has destined me for beauty. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Made for You
+============
+
+*He who fashioned and made the earth, he founded it; he did not create it to be empty, but formed it to be inhabited.* - Isaiah 45:18, NIV
+
+The Bible tells us that planet earth was made specifically for humanity. If that is true, then what would we expect to find with regard to this planet?
+ 
+    * We would expect to find the right ingredients to sustain life forms that can coexist with human beings, such as liquid water, oxygen, hydrogen, nitrogen, and a chemical building block like carbon.
+    
+    * We would expect to find temperatures within a narrow range to sustain human beings (and other things such as liquid water).
+    
+    * We would expect to find a large moon positioned to ensure climate stability.
+    
+    * We would expect to find just the right star that would remain fairly stable.
+    
+    * We would expect to find a planetary core that would help generate the planet’s protective electromagnetic field, to protect us from deadly solar radiation.
+    
+    * We would expect to find the right planetary neighbours, such as Jupiter, which shields the earth from constant stellar bombardment.
+ 
+All of these things work together, with extreme precision, to ensure a safe home for humanity. Scientists call this the “Goldilocks Principle,” because of all the apparent coincidences that are involved in ensuring that the earth is “just right” for us. However, there are no coincidences with God, only the providence of his grace. God knew what he was doing when he created this planet and put us in it. 
+
+God still knows what he’s doing today, and if you will allow him, he’ll work out your life to the fulfilment of a wonderful destiny that’s even more than “just right.” – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Evidence of Experience
+==========================
+
+*I heard about you from others; now I have seen you with my own eyes.* - Job 42:5, CEV
+
+How is it that people know that you exist? Because they experience you. They experience your presence, activity, and impact on their lives. It’s the same with God.
+ 
+Throughout the Bible, God is never trying to give logical evidences for his existence. The Bible was never meant to be an apologetics textbook. The “proofs” are there for the philosophers and debaters to play with. But you don’t have to prove logically that you exist to someone who experiences your presence, do you? That’s why God is constantly inviting people to experience him in their lives.
+ 
+In the Bible’s book of Job, the story comes to a climax as Job expresses to God his amazement at how wonderful it is to know God for himself, rather than all the things that others had said about him. In my own life, it has been a slow, sometimes dramatic, and even sometimes painful journey to know who God is for myself, through an ever-deeper personal relationship. I thought I knew who God was, because I had heard sermons about him and read about him in books – even in the Bible.
+ 
+But I’ve learnt that it’s not good enough to know about God. It is only good enough to know God, for yourself, and with nothing in between. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Creating God in Our Own Image
+=============================
+
+*They traded the truth about God for a lie. So they worshiped and served the things God created instead of the Creator himself.* - Romans1:26, NLT
+
+In many ways, people have created God in their own image: narrow-minded people serve a narrow-minded God, resentful people serve a resentful God, small people serve a small God, and legalists serve a legalistic God.
+
+Others serve a great big God whose forgiveness is unconditional, whose mercy is boundless, whose companionship is personal, and whose currency is love. Why do different people see God so differently?
+
+Human beings have been trying to create God in their own image from the beginning. We want a God who is just like us – a God whom we can control. Because what we create, we can control. But you can’t create, and you definitely can’t control God. Some people like the idea of god, more than they like God himself, because an idea is easier to control than the real thing.
+
+God showed us how unexpectedly and concretely he acts, in sending Jesus Christ to us to show us what God is actually like. This revelation was not abstract or intellectual in nature, but totally objective: God lived among us for decades in the flesh.
+
+God desperately wants us to know Him, because to know him means salvation. Don’t let your knowledge of what God is like be defined by your upbringing, culture, or even your church. You can know God by knowing Jesus. – Eliezer Gonzalez
+
+
 
 
 Back to top of: :ref:`eg-Reality`
+
+
+
+
+
+
 
 
 
@@ -2034,6 +2237,25 @@ In terms of priorities, God does not call us to be rooted and grounded in knowle
     *“He will reply, ‘Truly I tell you, whatever you did not do for one of the least of these, you did not do for me.’ Then they will go away to eternal punishment, but the righteous to eternal life.”* Matthew 25: 45-46.
 
 What about you? Have you been truly gospelised? Or have you merely been indoctrinated? – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Coherence of Scripture
+==========================
+
+*Every word of God is pure.* - Proverbs 30:5, NKJV
+
+Properly understood, the Bible is itself the strongest evidence for its truthfulness. But it must be properly understood. If you look at the Bible as you would consider any other book, then you might see apparent contradictions and problems. But the Bible is not like any other book.
+ 
+Everything must be judged according to its purpose. Most people don’t understand what the purpose of the Bible is, so they fail to see its beauty.
+ 
+The Bible was not given to us to explain scientific principles. It wasn’t to be a history of the human race. The Bible wasn’t intended to be a compendium of rules for right living. That’s not what it’s principally about. From beginning to end, the Bible has one primary purpose: to reveal Jesus Christ as the way to salvation (Luke 24:25–27; John 5:39).
+ 
+Jesus is the key that unlocks the meaning of Scripture. When you understand that, then you can understand how “every Word of God is pure.” – Eliezer Gonzalez
 
 
 

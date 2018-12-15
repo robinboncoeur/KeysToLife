@@ -337,4 +337,27 @@ The verse that follows also seems to have been put there on purpose.
 
 However peaceable we may be in this world, we will still be misrepresented and misunderstood. Even the Prince of Peace himself was “despised and rejected of men.” In this way, the peacemakers are not blessed, but they are surrounded, before and after, with blessings.
 
-Let us pray for grace to climb to this seventh beatitude! Let us ask the Lord to purify our minds so we may be “first pure, then peaceable” (James 3:17), and to fortify our souls, that our peaceableness may not lead us into cowardice and despair, when we are persecuted for Christ’s sake. – Charles Spurgeon 
+Let us pray for grace to climb to this seventh beatitude! Let us ask the Lord to purify our minds so we may be “first pure, then peaceable” (James 3:17), and to fortify our souls, that our peaceableness may not lead us into cowardice and despair, when we are persecuted for Christ’s sake. – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Your Life Proves God to Others
+==============================
+
+*The only letter I need is you yourselves! By looking at the good change in your hearts, everyone can see that we have done a good work among you.* - 2 Corinthians 3:2, TLB
+
+God wants all His children to be living examples of aspects of His character. I don’t think any one of the children of God proves all of God, but we all prove different parts of His one grand character.
+
+The thief on the cross proved the patience of God. Mary Magdalene proved his pardoning grace. Job proved that God is able to sustain us amidst unparalleled sufferings.
+
+However, we should not think that the testimony of the witnesses is closed. Each of God’s saints is sent into the world to prove some part of the Divine Character. Each Christian displays some attribute or other of God. When the whole is combined, like the sun that shines in all its splendour, we will see in Christian experience a beautiful revelation of our God!
+
+In fact, we are able to prove all of God’s promises in our lifetimes. On the last great day, we will find that every one of them has been fulfilled! This is not just true for us individually, because all of God’s promises will also be fulfilled in the united experience of the Church. – Charles Spurgeon
+
+
+
+
