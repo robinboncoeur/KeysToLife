@@ -785,6 +785,51 @@ This dilemma is merely the result of something else that is missing in our world
 It is faith that is missing at the heart of our society today. (Luke 18:8) – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Keep Jesus Central ...
+======================
+... **in Your Life**
+
+*And He, when He comes, will convict the world concerning sin and righteousness and judgement.* - John 16:8, NASB
+
+If we don’t understand our world and the reasons for its moral chaos, then we are like a boxer forced to fight with his eyes bandaged. Our world is very sick with an exceedingly contagious illness.
+
+In a single word, the Bible, gives the reason for our dilemma: sin. But if you search modern books or magazines, it is quite unlikely you will come across that word. There’s also another missing word: God.
+
+A century and a half ago, Charles Darwin wrote his 'Origin of the Species', which became the bible for evolutionists in every country of the world. The key idea of this influential book is *chance* – believing that all things arrived through luck, and not by the word of God.
+
+Darwin robbed humanity of hope, the basic staple of existence. Nobody believes in Utopia any more. By dismissing God, sin, Christ, the Bible, hope and meaning, the doctrine of organic evolution leaves humanity lost and hopeless.
+
+The main reason for rejecting Darwinism is that in dismissing Genesis we lose the doctrine of the Fall. If man is not spiritually lost, he does not need a Saviour. If Christ becomes irrelevant, then Christianity itself is dissolved.
+
+They key challenge in every person’s life is to keep Christ central in their lives.
+– Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Fullness: ...
+=============
+... **Available in Jesus**
+
+*Out of his fullness we have all received.* - John 1:16, NIV
+
+Jesus is God's 'unspeakable gift' (2 Corinthians 9:15 KJV). Though he was rich, for our sake he became poor, that we through his poverty might become rich. In Christ we have all else as well: righteousness, wisdom, sanctification, and redemption.
+
+Jesus is our Boaz, our kinsman Redeemer. He is the Lord of the harvest who invites us to his banquet, and speaks tenderly to us. He orders his angelic messengers to “drop handfuls ... [on] purpose” (Ruth 2:16) for us that we might always have as much as we need, and be blessed.
+
+In Jesus is found all the fullness of God and heaven. Humanity has a heart that is bigger than the world, however, God be praised; there is such a thing as all fullness available! God “has set eternity in our hearts” that we might be contented with nothing less than Jesus. We eat at his table, and are satisfied, and there is still an abundance left over. – Des Ford
+
+
+
+
 
 Back to top of: :ref:`df-GodsNature`
 
@@ -2065,6 +2110,25 @@ We acknowledge with the writer of Luke and Acts that Christianity is a universal
 We affirm with John that the Word, who was God and with God in the beginning, became flesh and dwelt among us. We confess him to be the one who took away the sin of the world. That is how whoever believes in him will not perish but experience eternal life now. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+All the Bible is about Jesus
+============================
+
+*Then he said, “When I was with you before, I told you that everything written about me in the law of Moses and the prophets and in the Psalms must be fulfilled.”* - Luke 24:44
+
+The whole Bible, both Old and New Testaments, enshrines Christ. Its chief characters, institutions, and histories, prefigured him. He is a true prophet, priest, and king. He was God's living temple. He was the incarnate Shekinah glory. He was the ladder let down from heaven. He was the true manna, as well as the uplifted serpent and the water from the rock.
+
+Hundreds of prophecies in the Old Testament find their complete fulfilment in Christ (e.g. Isaiah 53, Psalm 22, Micah 5:2). From the very beginning, the Bible paves the way for Jesus. In Genesis we find the Messiah would be the seed of the woman, and then a descendant of Shem, and then of the seed of Abraham and finally the tribe of Judah.
+
+Haggai said he would come in the days of the second temple. Daniel declared that it would be at the end of seventy weeks of years following the temple restoration decrees given by heathen monarchs. Micah said Messiah would come from the little village of Bethlehem.
+
+How much evidence do people need? Has not God given more than enough for every honest seeker? – Des Ford
+
+
 
 Back to top of: :ref:`df-ChristOurSalvation`
 
@@ -2960,6 +3024,71 @@ Let God be God. Either God matters tremendously or he doesn’t matter at all. I
 God must be first in every choice. The worship of God must be seen as our first duty and the source of all our fruitfulness and joy. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Don’t Follow Darwin’s Foolishness
+=================================
+
+*I have fought the good fight, I have finished the race, I have kept the faith.* - 2 Timothy 4:7, NIV
+ 
+Did Darwin believe in God? Most people in Darwin’s time rejected the concept of atheism. Had Darwin been an atheist, a wall of prejudice would have sprung up between his theory and most of his readers. In 'The Origin of Species' Darwin refers to the Creator seven times. But it is quite certain that he had ceased to be a Christian years before he wrote this book.
+ 
+By 1840 he applied to himself the term invented by Thomas Huxley: “agnostic.” However, Darwin refused to apply to call himself an “atheist.” Darwin was never an atheist in the sense of denying the existence of God. However, he still felt profoundly uncertain.
+ 
+Darwin was a good husband and father, a good neighbour and friend, but nonetheless he was guilty of the greatest sin any person can ever commit — a sin worse than murder, adultery, false witness, or theft. He consistently broke the first and great commandment.
+ 
+Because he permitted his faith in God and Scripture to evaporate so easily, he could never love his Maker with all his heart, mind, and strength. He never sought for, and never found, that Gospel which removes all darkness and bestows all light.
+
+May the dear Lord save us from such foolishness with its inevitable eternal results. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Darwin’s Wrong Conclusion
+=========================
+
+*For the foolishness of God is wiser than human wisdom, and the weakness of God is stronger than human strength.* - 1 Corinthians 1:25, NIV
+
+Very few people know the truth about the most influential book of the last fifteen hundred years, 'On the Origin of Species', by Charles Darwin. This book was based on what now seems a tiny mistake, but it changed the world drastically for the worse.
+
+Darwin proposed the view of life as a struggle for existence, and adopted the resulting motto: “survival of the fittest.” Many scientists have seen that there is a struggle for existence in nature, but it does not have the prominence Darwin gave it. Most species are plant, seed or fruit eaters, and carnivores are much in the minority. Darwin jumped to a conclusion, which has led the world into atheism and a disregard for the sacredness of life. His small mistake has led to the cruel killing of millions by war, as well as social and industrial greed.
+
+Our influence is like the dropping of a stone into water causing wider and wider circles. Small mistakes by any one of us can have tremendous consequences for the lives of many.
+
+Only by much consideration of the person and work of our Saviour can right choices be made. Then, and then only, we shall be a “saviour of life unto life.” – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Belong to God
+=================
+
+*You are not your own ... For you were bought at a price.* - 1 Corinthians 6:19–20, NKJV
+
+Did I conceive myself, bear myself, care for myself in the first days, months, years of life? Can I guarantee even one day of my life? How much power do I even have within myself to do what is good?
+
+The old Book is right. We are not our own. All that we can call our own are our mistakes, our sins, our failures, and our innate abysmal selfishness and poverty. All that we count as “plusses” are given to us.
+
+Why is it then that we so often ignore God in the way that we live? Why is it that we live for life’s pleasures, and flee from its obligations?
+
+Stand under the shadow of that ancient Cross and hear Jesus’ plaintive cry, "My God, my God, why have you forsaken me?" He was forsaken that we might forsake our habit of fleeing from the cross of life, which is the Cross of the gospel. If we lift the Cross, it will ultimately will lift us. The sacrificial principal of the Cross must be embraced. When you embrace the cross of service, it gives you wings like a bird and sails like a ship. Our loving, Heavenly Father transforms the pain and misery of Calvary into the songs of Paradise.
+
+We belong to God — every cell, every talent, every capacity for thought, feeling, and action. 
+
+So, sing it gladly: "We are not our own, for we have been bought with a price. That’s why we will we glorify God in our body and in our spirit which are God's.” Hallelujah! – Des Ford
+
+
+
+
 
 Back to top of: :ref:`df-ShouldWeLive`
 
@@ -3468,6 +3597,65 @@ In a dream Jacob saw a ladder extending from heaven to earth (Genesis 28:10-22).
 The very first truth about Christianity is that Christ is divine, the spotless Son of God. Unless we are clear on who Christ is, we will not be clear on anything else. The Cross is the only lever that can lift the world to God. It is the magnetic attraction that draws men and women out of the maelstrom of sin. The Cross has revealed the love of God in a way nothing else could.
 
 A true Christian is clear on the nature of Christ. Christ is our spotless sacrifice, the Creator of all things, and the Redeemer of the world. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+Where Does Thought Come From?
+=============================
+
+*Lord, I believe; help my unbelief!* - Mark 9:24, NKJV
+
+There is evil in the world, which sometimes makes us question and doubt. However, it makes no sense to deny the existence of God because there is evil in the world. First, ask the question, why do you know that there is evil at all? To accuse God means to have a standard. Where does your standard come from? It comes from the One who made the world, made your brain, and who gave you your standard of what is right and good.
+
+If my brain is the result of the play of meaningless atoms in time and space, I have no grounds to trust its conclusions. No one yet has ever answered the question: where did thought come from? If thought matches reality, there had to be an infinite and wise Creator who gave us consciousness. But if our thoughts are the result of chance, then we should no more trust their conclusions than we should expect the accidental splash from a jug to give us a map of Australia.
+
+Yes, there is much that we still do not understand. The Christian has not yet been glorified. He or she every day does battle with selfishness and sin. 
+
+And doubts remain. We cry with the father in the New Testament: “Lord, I believe, help my unbelief.” – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+What Gives the Bible ...
+========================
+... **its Authority?**
+
+*God, who at various times and in various ways spoke in time past to the fathers by the prophets, has in these last days spoken to us by His Son.* - Hebrews 1:1–2, NKJV
+
+Some see in the Bible merely a collection of historical documents, most of them inaccurate. Others see in Scripture the very word of God.
+
+The Bible is composed of many forms of literature; it underwent a multifaceted process of production with human authors and even editors. Why then, should I pay attention to the Bible? Why should I be concerned with believing and living according to its standards and directions?
+
+Because the Bible answers the problems of this world - as a perfect key matches a lock - it reveals God as nothing else in creation reveals him. Above all, the Bible witnesses to the most unique person ever seen on this planet – Jesus Christ – whose words after twenty centuries still come to us fragrant and fresh, pungent and powerful.
+
+The reason why so many through the centuries have sensed an authority in the Bible that transcends the authority of all other books is that through it, God has revealed himself to us. He did it over millennia through the many authors and genres, and finally he did it through Christ, who gives meaning and authority to the whole. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+The New Testament ...
+=====================
+... **Was Not Made Up**
+
+*Many people have set out to write accounts about the events that have been fulfilled among us. They used the eyewitness reports circulating among us from the early disciples.* - Luke 1:1–2, NLT
+
+Galatians 1 carries the ring of truth. Here is a man confessing that he had been a blasphemer and a persecutor, but been turned around by the miraculous intervention of God. In 1 Corinthians 15, Paul says that five hundred people, of whom the majority were still alive at the time when he wrote, saw the resurrected Christ. The second Gospel was written by Mark, who was Peter’s scribe. How fascinating to find that it is Mark's Gospel that sets Peter in the worst light!
+
+John the Baptist is presented as having his doubts concerning the character of Jesus (Matthew 11:3). We read that many of Christ's disciples left him (John 26:56). Matthew confesses that in his hometown, Christ did not work many miracles (Matthew 13:58).
+
+Luke quotes the scorn of unbelievers who called Christianity a superstition (Acts 25:18-19). In the Gospels we find the surprising note that even Christ's own relatives thought he might be going insane. When our Lord's post-resurrection appearances are described, he is presented as appearing to believers only. Wouldn't it have made a better story if the Gospel writers had pictured him as appearing to Pilate and Herod?
+ 
+The authors of the New Testament were more interested in the facts, than the impression their story might give. The New Testament has the ring of truth. – Des Ford
 
 
 
