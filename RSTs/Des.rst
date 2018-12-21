@@ -524,11 +524,48 @@ Justification is not forgiveness. In a practical sense, it includes forgiveness,
 John's Gospel is asking, "Do you believe? Have you received? Do you have life eternal? Have you received the favourable verdict of the Last Judgment now?" – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Day You Died
+================
+
+*I have been crucified with Christ.* - Galatians 2:20, NIV
+
+Only when we know that God accepts us can we accept ourselves, and only as we accept ourselves can we accept others. The power of sin can never be broken until the guilt of sin is taken away by our acceptance of the gospel.
+
+We are free, indeed, when, as a result of the Good News and the moving of the Spirit upon our hearts, we now want to do what we ought to do. No one can ever love God until he or she believes that God loves them.
+
+It is at the Cross that this supreme revelation of the love of God toward us was made. As we see the hand of the Crucified One extended to east and west, we realize that all heaven is inviting us to come to him and claim him as our Substitute, Representative, Redeemer and Friend.
+
+2 Corinthians 5:14 tells us that the day of our death was Good Friday at Calvary: 
+
+    *"If one died for all,* **then all died.**"
+    
+Not only did Christ die for us as our Substitute, but we died with him who was our representative. At Calvary, through Jesus, we all paid for our sins of yesterday, today, and tomorrow.
+
+That’s why it’s our great privilege to know that paradise is ours this very day. – Des Ford
 
 
 
 
 Back to top of: :ref:`df-GospelMessage`
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -826,6 +863,66 @@ Jesus is God's 'unspeakable gift' (2 Corinthians 9:15 KJV). Though he was rich, 
 Jesus is our Boaz, our kinsman Redeemer. He is the Lord of the harvest who invites us to his banquet, and speaks tenderly to us. He orders his angelic messengers to “drop handfuls ... [on] purpose” (Ruth 2:16) for us that we might always have as much as we need, and be blessed.
 
 In Jesus is found all the fullness of God and heaven. Humanity has a heart that is bigger than the world, however, God be praised; there is such a thing as all fullness available! God “has set eternity in our hearts” that we might be contented with nothing less than Jesus. We eat at his table, and are satisfied, and there is still an abundance left over. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus Really Was Crucified
+==========================
+
+*When the centurion and those with him who were guarding Jesus saw the earthquake and all that had happened, they were terrified, and exclaimed, “Surely he was the Son of God!”* - Matthew 27:54, NIV
+
+Imagine the difficulty of beginning a new religion based on the deity of a man who has been condemned by the courts and executed in the electric chair. Imagine beginning it in the very city where he was put to death so shamefully! That's what it was like to start the Christian faith.
+
+Now I ask you, would you try to establish a religion you knew to be a fantastic lie? And if so, would you do it in the very place where thousands would know that no such event had ever happened?
+
+Imagine having as the basic rite of your invented religion the commemoration of the most despised manner of death the world has ever known – crucifixion.
+
+That's what the Christians chose to do.
+
+Read the New Testament account of the crucifixion again. There is something
+quite awesome about it and uniquely puzzling. How did they write such an unflinchingly stark account? I submit to you that the record is self-authenticating to those who want to know whether it is true. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus Resurrection Was Foretold
+===============================
+
+*Wasn’t it clearly predicted that the Messiah would have to suffer all these things before entering his glory?* - Luke 24:26–27, NLT
+
+The Christian has grounds for either superlative joy or superlative misery. It all depends on whether the resurrection of a man called Jesus Christ is a hoax or not.
+
+Christ himself had foretold his resurrection repeatedly. Where did he get that information? It is stated clearly in books written centuries before. Read Isaiah 53 with its mysterious portrayal of one who would be sinless and yet suffer for the sins of others. One who would die leaving no seed and yet who would prolong his days after being cut off, and then "see his seed"(v.10). 
+
+See Psalm 22 with its opening words of "My God, my God, why have you forsaken me?" and its closing"- for he has done it" (v.31). The first half of the psalm describes the crucifixion and its horrors. Then the tone changes to triumph and victory. He who is to suffer so will rise from the dust of death. He will declare God's name in the midst of God's congregation and to his brothers. Think of the words in Psalms 22:24, 26, 27, 29–31. These words contain many miracles within them.
+
+All who want to find assurance of the truth of the Christian faith can find it here, clearly and beyond refutation. It is there in words written centuries before the birth of Christ. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Experience the Love of God
+==========================
+
+*Greater love has no one than this: to lay down one’s life for one’s friends.* - John 15:13, NIV
+
+The true spring of love is to know that we are loved. No one ever loves Jesus Christ until they believe that Jesus Christ loves them. Love isn't something you invent; love isn't something you muster; love is a spontaneous result to the experience of being loved. There is no other way.
+
+There is an old legend of a knight who found a terrible dragon coiled around a tree, and the knight, undeterred, kissed it on the mouth three times. And then says the legend, the terrible dragon became a beautiful girl. It became his bride.
+ 
+God loved first, says Scripture, and not the other way round (1 John 4:19). He didn't wash us clean and then say, "Well, you’re clean enough now. I'll love you now."
+ 
+If Christ hadn’t died for his enemies, he would never have had the love of his friends. In the Old Testament, only one person was ever called a friend of God, and that's Abraham. But under the New Covenant we are all friends of God. Every Christian is closer to God than Abraham, or even Moses when he spoke with God in front of the Tabernacle. – Des Ford
 
 
 
@@ -1244,8 +1341,87 @@ Similarly, Jesus promises us multiples of good things, but adds “and with them
 Nestling in Jesus’ realism is joy. Because of grace. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+True Sacrifice
+==============
+
+*For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life.* - John 3:16, NIV
+
+The Jewish High Priest Caiaphas said, "It is better… that one man die for the people than that the whole nation perish" John 11:50, NIV
+
+Caiphas’ view is the heathen view, which says, “Let us placate God!”
+
+That is not the biblical idea of sacrifice. The Bible never says that God is angry at us, and that by sacrificing it will put away his anger. The Bible says,
+
+    *"God so loved the world that he gave..."* John 3:16
+
+We do not placate God. God is the one who gave. He gave because he **loved**.
+
+We should also not make the mistake of thinking, that at the Cross, God was on the throne and it was just his Son who suffered.
+
+You must distinguish them as a part of the Trinity, but you must never separate them.
+
+    *“God was in Christ reconciling the world to himself...”* 2 Corinthians 5:19
+    
+Christ offered himself “through the eternal Spirit” (Hebrews 9:14, NASB). The whole Godhead was there suffering on the cross in the person of the Son.
+
+The practical question for me, of course, is, “Has my awareness of the reality of God’s sacrifice conquered me?”
+
+The evidence of whether a person have surrendered to the sacrifice that God made is not how a person preaches, writes, sings, but how that person lives. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Why Grace Must Be Preached
+==========================
+
+*For the grace of God has appeared that offers salvation to all people.* - Titus 2:11, NIV
+
+You don’t really have to preach a lot about law because everybody knows something about law. A murderer knows he shouldn’t murder, and a thief knows he shouldn’t steal.
+
+But you do have to preach about grace, because grace isn’t something that we naturally know. Grace is a surprising revelation. The great Judge ought to punish me. He certainly shouldn’t let me get anywhere near where he lives.
+
+But grace says that God doesn’t reward us according to our sins or punish us according to our iniquities. It tells us that God is exceedingly kind and merciful, forgiving iniquity, transgression and sin.
+
+The picture I like best is in Luke’s account of the Sermon on the Mount, when Christ says God is kind to **the unthankful and to the evil**. Now most of us feel very sensitive regarding ingratitude. We’ve all been hurt by people who have been ungrateful to us. Yet God is kind to all.
+
+All our sins are like a grain of sand compared with the grace of God and the mountain of his love. All our sins are like a spark falling into the ocean of the love of God. God is more willing to forgive our sins than a mother is to go and save her child from a burning building. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+True Religion is Primarily Grace
+================================
+
+*Surely He has borne our griefs and carried our sorrows. All we like sheep have gone astray; We have turned, everyone, to his own way; And the Lord has laid on Him the iniquity of us all.* - Isaiah 53:4,6, NKJV
+
+Never make the mistake of thinking that religion is primarily about morality. The Pharisees were very moral, but Jesus told them that the tax-collectors and the prostitutes would get to the kingdom of heaven before them.
+
+Morality always goes hand in hand with true religion, but you can have a lot of morality without true religion. Morality is an outward thing, something you do, whereas true religion has to do with your heart and mind. God wants to have a person with a broken heart, rather than one with an unbroken record.
+
+There aren't any people with an unbroken record. Anyone who thinks they are heading that way is so full of pride that they've ruined their record more than someone who has done something overtly wrong. Remember that in the New Testament scale of values, pride and selfishness are much worse sins than the "sins of the flesh". That's why Jesus said to the Pharisees that prostitutes would go into the kingdom of heaven before them.
+
+The essence of true religion is this: we deserve death, but someone else took our place; we deserve to be excluded from the kingdom of God, but there is One who loved us so much that he took the punishment that was due to us. That's the essence of true religion. – Des Ford
+
 
 Back to top of: :ref:`df-ForByGrace`
+
+
+
+
+
+
+
 
 
 
@@ -2129,8 +2305,43 @@ Haggai said he would come in the days of the second temple. Daniel declared that
 How much evidence do people need? Has not God given more than enough for every honest seeker? – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is the Great Giver
+========================
+
+*For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you through his poverty might become rich.* - 2 Corinthians 8:9, NIV
+
+This is one of the most wonderful verses in the Bible. The word “grace'” here can be translated “gift”; in other words, “You know the gift of the Lord Jesus Christ.” The Lord of heaven is a gift to all who will receive him.
+
+"Though he was rich." How rich? Well, he owned the universe, yet, for our sakes he became poor. How poor? He didn't even own a loin cloth on the cross.
+
+When Christ approached the cross he owned one thing of value, a tunic probably woven by a loving mother, without seams, beautifully and lovingly prepared. But he gave this to his crucifiers.
+
+This is a wonderful symbol of how Jesus imputes his robe of righteousness to us. He gave his robe to those responsible for his death, so he was poor for our sakes. He did not even own a loin cloth, so his proverty was absolute; that "you through his poverty might become rich."
+
+He even gave up life itself for us. Many of us are prepared to give up things, but give up life? That's something else! But Jesus gave up even life itself that we through his poverty might be rich. – Des Ford
+
 
 Back to top of: :ref:`df-ChristOurSalvation`
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -3099,10 +3310,84 @@ We belong to God — every cell, every talent, every capacity for thought, feeli
 So, sing it gladly: "We are not our own, for we have been bought with a price. That’s why we will we glorify God in our body and in our spirit which are God's.” Hallelujah! – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Parables of Love
+================
+
+*He said to his servants, ‘Go out to the street corners and invite everyone you see.’ So the servants brought in everyone they could find, good and bad alike.* - Matthew 22:8–10, NLT
+
+Matthew 21:28 to 22:22 present three parables that Jesus told the priests in the temple. While they are stern, they are filled with love.
+
+The first of the three parables assures us that the doors of heaven are open to even the most fallen who are penitent. The second tells of the love of God in sending his only Son, his beloved, and how he is cruelly killed.
+
+Having assured us that heaven is open to all who repent, and having shown that there are those who accept it and those who reject it, now Jesus tells a third story, of a great invitation. This is the story of a great supper, a marriage for the king’s son. What a supper! All expenses are paid by the king. Those invited need only bring a good appetite — not food or merit, and there is no preparation needed. Anyone can come!. And because the guests could never afford the wedding garment, the king provides that was well!
+
+How strange that foolish men and women should reject the invitation to the greatest party in the history of the world — the gospel feast with its forgiveness of sins, its provision of the indwelling Christ, indemnity in the judgment and a blessed immortality! – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Must Want Salvation
+=======================
+
+*Blessed are those who hunger and thirst for righteousness, For they shall be filled.* - Matthew 5:6
+
+A Man in India came to a learned Guru and asked him,
+
+"Tell me, how can I be saved?"
+
+The Guru took him and pushed him under the water of the nearby stream. He brought the man up and the man asked,
+
+"Why did you do that?"
+
+"Well, I was answering your question."
+
+"What do you mean?"
+
+"When you want salvation as much as you want air, you will find it."
+
+When you and I look at the life of Christ and his perfect righteousness, and we see our true state, we shall want the imputed righteousness of Christ. We will call out to him for it. We will stretch out the hand of faith, and the richest and greatest blessing of all will be ours; ours for the asking; ours for the taking: the free grace of God, the blessings of heaven, for all who seek them. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+What Religion Was Meant to Be
+=============================
+
+*Accept each other just as Christ has accepted you.* - Romans 15:7, NLT
+
+Religion has all sorts of peculiarities, sacred cows, and shibboleths. Have you heard of the Left-leg Brethren and the Right-leg Brethren? They existed in one part of the United States.
+
+They believed in foot-washing, but were divided over which leg should be washed. There were Left-leg Brethren and Right-leg Brethren. These sorts of mistakes come naturally to us.
+
+When we come to the book of Romans, we find what religion is meant to be. It helps us avoid those mistakes.
+
+True religion, according to Romans, is about faith, hope, love; about the Cross of Christ, and the love of God. It is about the reality of forgiveness—daily forgiveness, hourly forgiveness. As Romans talks about bearing and forbearing, giving and forgiving, we learn what true religion is.
+
+True religion is not a matter of shibboleths and sacred cows. It is not a matter of creeds.
+
+True religion is the overflow of the union of your heart with the loving heart of God, into every one of your relationships. – Des Ford
+
 
 
 
 Back to top of: :ref:`df-ShouldWeLive`
+
+
+
+
+
+
 
 
 
@@ -3687,6 +3972,25 @@ Abraham was not declared righteous because of any of his good works, although he
 Abraham was justified as a result of the coming Seed, Jesus. **Faith was but the hand that received**. Faith is not the basis of God's gift. All are justified by means of faith, that is, through faith; but not because of, or as a result of, faith. Justification through faith means justification through Jesus.
 
 The way that Abraham was justified is the pattern for all of us. And how we all need justification! Not one of us is what we should be, could be, or would be. The perfect law demands not merely perfect outward performance but perfect attitude of heart, perfect motives from a perfect heart. We don’t have any of these to offer. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+You Can Start to Live Today
+===========================
+
+*I write these things to you who believe in the name of the Son of God so that you may know that you have eternal life.* - 1 John 5:13, NIV
+
+At the heart of every one of us is a selfish core. It taints everything we do. Nothing we do is untainted. We never pray a prayer, preach a sermon, sing a Christian song, or do anything, that is not tainted. We desperately need forgiveness.
+
+We have not started to live until we believe that all our sins are like a grain of sand beside the mountain of God's forgiveness. We have not started to live until we are aware that all our guilt is but a spark quenched in the ocean of God's mercy. We have not started to live until we believe that God is more willing to forgive than a mother is to save her child from a burning house. We have not started to live until we know it is more difficult to take love out of the heart of God than it is to take the salt out of the ocean or the blaze out of the sun.
+
+We have not started to live until we know these things.
+
+We will not be motivated to choose good and turn away from evil unless we know today, this hour, this moment, that God accepts us just as we are, warts and all, with all our mistakes, fumblings, and stumblings. – Des Ford
 
 
 

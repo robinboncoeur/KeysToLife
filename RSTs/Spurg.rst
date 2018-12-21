@@ -127,7 +127,24 @@ We little know what we owe to our Saviour's prayers. When we reach the hilltops 
  
 Even before Satan has begun to tempt, Jesus interrupts him and enters a plea in heaven. Mercy outruns malice….
  
-O Jesus, what a comfort it is that you have pleaded our cause against our unseen enemies; countermined their mines, and unmasked their ambushes. Here is a matter for joy, gratitude, hope, and confidence. – Charles Spurgeon 
+O Jesus, what a comfort it is that you have pleaded our cause against our unseen enemies; countermined their mines, and unmasked their ambushes. Here is a matter for joy, gratitude, hope, and confidence. – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Always Hears You
+====================
+
+*My God will hear me.* - Micah 7:7
+
+Friends may be unfaithful, but the Lord will not turn away from anyone who comes to him; on the contrary, He will listen to all your sincere desires. The prophet says, "Keep the doors of thy mouth from her that lieth in thy bosom. A man's enemies are the men of his own house." This is a wretched state of affairs; but even when other people hurt us, Jesus, our Best Friend remains true, and we may tell Him all our grief.
+ 
+Our wisdom is to look unto the Lord and not to quarrel with other people. If our loving appeals are disregarded by our relatives, let us wait upon the God of our salvation, for He will hear us. He will hear us all the more because of the unkindness and oppression of others, and we shall soon have reason to cry, "Rejoice not against me, O mine enemy!"
+ 
+Because God is the living God, He can hear; because He is a loving God, He will hear; because He is our covenant God, He has bound Himself to hear us. We can confidently call him "My God," and we can be absolutely certain that, "My God will hear me." So, when you are suffering, tell God about your sorrows! You can confidently say, "My God will hear me." – Charles Spurgeon
 
 
 
@@ -359,5 +376,37 @@ However, we should not think that the testimony of the witnesses is closed. Each
 In fact, we are able to prove all of God’s promises in our lifetimes. On the last great day, we will find that every one of them has been fulfilled! This is not just true for us individually, because all of God’s promises will also be fulfilled in the united experience of the Church. – Charles Spurgeon
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
 
+To Live is Christ
+=================
+
+*For me to live is Christ.* - Philippians 1:21, NKJV
+
+Paul’s words mean more than most men think; they imply that the aim and purpose of his life was Christ; even his life itself was Jesus. He ate, and drank, and slept eternal life. Jesus was his very breath, the soul of his soul, the heart of his heart, the life of his life.
+ 
+Can you say, as a professing Christian, that you live up to this ideal? Can you honestly say that for you to live is Christ? Your business—are you doing it for Christ? Or are you doing it your own personal benefit and for the benefit of your family? Are you surprised if I say that these reasons are too shabby for doing your business? For a Christian they are. A Christian professes to live for Christ; how can he live for another purpose without committing spiritual adultery?
+
+Many there are who carry out this principle in some degree; but who is there who dares to say that he lives entirely for Christ as the apostle did? Yet, this alone is the true life of a Christian—its source, its sustenance, its method, its purpose and goal, is all gathered up in one word—Christ Jesus. – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+How to Love Christ More
+=======================
+
+*We love him because He first loved us.* - 1 John 4:19, NKJV
+
+We should love Christ much more than we do at present. Christ has spontaneously shown us such love when we were his enemies, that even if our every breath and pulse was devoted to him, if we had ten thousand lives and we laid them all down for him, we would be perfectly justified in doing that, and ten thousand times more, if it were possible.
+
+Our love to our Lord Jesus Christ is an effect produced by a great cause, namely, his eternal love to us. If you really believe that he has loved you with such love, then you must love him, must you not? Can your heart resist his charms?
+
+The heart that does not feel moved whenever the love of Christ is proclaimed must be a hard heart indeed. Yet we must not try to make ourselves love our Lord, but look to Christ's love first, for his love will create in us love towards him.
+
+If you are distressed because you cannot love Christ as much as you would like to, then just forget your own love to him, and focus on his great love to you. The more you do this, the more your love will transform into what you desire it to be. - Charles Spurgeon

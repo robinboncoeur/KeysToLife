@@ -325,6 +325,32 @@ These people had been taught to read the Scriptures and to see in them anything 
 It’s time to stop being foolish and dull. When you read the Bible and see the Gospel, your heart will burn within you with excitement! It’s time to read the Scriptures afresh! But we will only ever be able to understand them if the Christ of Emmaus is walking alongside us to open our eyes. Then, an exciting new beginning will come into your life! – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is the True Bread...
+==========================
+... **from Heaven**
+
+*Moses didn’t give you bread from heaven… The true bread of God is the one who comes down from heaven and gives life to the world.* - John 6:32–33, NLT
+
+In Exodus 16:14–22, we read the story of how God sent manna to feed his people in the wilderness. This was bread from heaven (v.15), and it represented the grace of Jesus, the One who would come and be the true Bread from Heaven (John 6:41).
+
+Manna was sweet. You may have experienced bitterness in your life, maybe even right now, but Jesus gives you his grace.
+
+The children of Israel needed to collect the manna every day. You need to receive the grace of God every day.
+
+Manna was free. No one had to work for it. You didn’t have to go looking for it. It was just there at your doorstep. All you had to do was to go and pick it up and look up to heaven and say, “Thanks!” That’s how grace comes to you. You can’t work for the gift of Christ.
+
+Manna was enough. Everyone received what they needed, and it was always enough. The grace of God will always be more than sufficient for your needs.
+
+Some of the Children of Israel tried of find manna in their own way, with tragic consequences. It doesn’t work that way.
+
+The Bread of Life is there for us every day, free, and always meets our needs. It’s what gives us true life. – Eliezer Gonzalez
+
+
 Back to top of: :ref:`eg-TheGospel`
 
 
@@ -1283,6 +1309,32 @@ Can you and I be fed in this way too? Jesus declared, “I am the living bread t
 Because of Calvary, none need ever go hungry again. There’s always bread in Bethlehem. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+No Condemnation
+===============
+
+*For God did not send his Son into the world to condemn the world, but to save the world through him.* - John 3:17, NIV
+
+The most famous verse in all the Bible, and rightly so, is John 3:16:
+
+    *For God so loved the world that he gave his one and only Son, that whoever believes in him shall not perish but have eternal life.*
+
+This verse is so good, that we often miss what follows.
+
+I was reading the next verse (v.17) the other day when something hit me across the head like a plank of wood! Notice what it says: that God didn’t send his Son into the world to condemn the world, but to save the world.
+
+And if God didn’t send Jesus into the world to condemn, then... don’t condemn!
+It’s interesting that the only sins that Jesus really ever called out were those of the smug and self-satisfied. It’s true that we must stand up against sin. But too often we strain at a gnat and swallow a camel (Matthew 23:24). We’re more concerned about the sawdust in our brother’s eye then the plank of timber in our own (Matthew 7:3).
+
+The sin we must stand up against the most is usually our own.
+
+Jesus spoke the words of John 3:17 to Nicodemus. Nicodemus was good at condemning. I’ve had too much of Nicodemus in me in my past, and not enough of Jesus. What about you? – Eliezer Gonzalez
+
+
 Back to top of: :ref:`eg-Challenges`
 
 
@@ -1846,6 +1898,121 @@ God showed us how unexpectedly and concretely he acts, in sending Jesus Christ t
 God desperately wants us to know Him, because to know him means salvation. Don’t let your knowledge of what God is like be defined by your upbringing, culture, or even your church. You can know God by knowing Jesus. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is the Son of Man
+=======================
+
+*The Son of Man did not come to be served, but to serve, and to give his life as a ransom for many.* - Mark 10:45, NIV
+
+The name that Jesus used most often for himself, the name by which he preferred to be known, was a name that intimately and forever connected him with humanity – “Son of Man.” Not “Son of God”, but “Son of Man.”
+
+The name “Son of Man” expresses one of the closest human bonds that can exist, the son-father relationship. In Jesus’ culture, the son always put the father first; the son honoured the father and did what the father could not do for himself. Even more than this, Jesus specifies that this servant-relationship to humanity is expressed in his redemptive self-sacrifice for all. He says that,
+
+    *"...the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many..."* Mark 10:45
+
+Jesus came to this earth to be by your side – to be much more than just your best friend. He came to be related to you by blood – a blood-relationship that is even closer than anything you may have understood before, because it was forged by the sacrifice of flawless love and not by flawed genetics.
+
+In whatever may be your need right now, He will stand there beside you. He will never leave you nor forsake you. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+He Loved Them to The End
+========================
+
+*Having loved His own who were in the world, He loved them to the end.* – John 13:1, NKJV
+ 
+This text describes the attitude of Jesus just before the Last Supper. The thought of what he was about to do, and the weight of the awesomeness of the burden that he would carry almost overwhelmed him.
+
+This text doesn’t mean that he loved his own until the end of his life. That’s not what the Greek means at all. The Common English Bible translates it as:
+
+    *Having loved his own who were in the world, he loved them fully.*
+
+What the text means is that Jesus loved them to the uttermost. This is extreme love. This is even more than a love that goes beyond what we can understand or beyond what we have experienced. This is love taken to an unending extreme, in a way that only the divine heart of bottomless love can do. Jesus loves us to the end.
+
+The ones whom he loves are “His own who were in the world.” He was talking about his disciples, with whom he was about to eat the Last Supper. He was about to be betrayed, denied, and abandoned by them. Yet still he loved them to the end.
+
+He was talking about you and me, by whom he has been betrayed, denied, and abandoned. Yet he loves us to the end. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Love That Makes No Sense
+========================
+
+*Consider the kind of extravagant love the Father has lavished on us—He calls us children of God!* - 1 John 3:1, Voice
+
+While most prophecies begin with an explicit command for the prophet to prophesy, the book of Hosea begins with God’s instructions for him to get married (Hosea 3:1).
+
+This is no ordinary marriage. God shockingly commands Hosea, a respectable young man, to propose to a prostitute.
+
+Hosea’s marriage became a living sermon: a reflection of the sad relationship between God and Israel. What Hosea did for Gomer, God did for Israel; what Gomer did to Hosea, Israel did to God.
+
+Humanly speaking, Hosea’s love for Gomer did not make any sense. People must have thought, “What is wrong with Hosea? Why doesn’t he divorce her and get himself a decent wife?” But, that was the very point of the message. God’s love for sinners is unexplainable apart from his free and sovereign grace.
+
+The message of Hosea transcends his time and circumstance to ours. We too have turned to strange gods of money, politics, traditions, fame and wealth. At the Cross, God enters into a marriage covenant with us, having saved us while we were still sinners (Romans 5:8).
+
+As it was in the marriage of Hosea, so is it in the covenant of grace. God continues to love us despite our constant failures. The only proper response to this kind of love is always genuine repentance. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Invests in You
+==================
+
+*Behold, I am the Lord, the God of all flesh. Is there anything too hard for Me?* - Jeremiah 32:27, NKJV
+
+Jeremiah 32 describes a time when things were very bleak for God’s people. Their nation was about to be destroyed by the Babylonian empire.
+
+Just then, God comes to Jeremiah with an astonishing business proposition. He says, “I want you to buy your cousin’s field” (v.8.) Who in their right mind would be buying real estate in the current situation! Surely it was worthless! And Jeremiah himself is in prison, with no certainty that he will live!
+
+God is no fool. He’s the greatest investor ever.
+
+But Jeremiah can’t work out the logic behind this. So the Lord speaks to Jeremiah and says,
+
+    *“I am the Lord, the God of all living things! Is anything too hard for me?”* v.27
+
+There will be times when it seems that no one will invest in you; that everyone has written you off. There will be times when it will appear as if you have no future, and that your life is absolutely doomed.
+
+It is then that you need to remember that there is someone who has already invested in you – Jesus Christ at Calvary. He was a prisoner, just like Jeremiah. He was surrounded by his enemies, just like Jeremiah. And Jesus bought the field of your life. And the price that he paid for it was his blood. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Have a Prodigal Father
+==========================
+
+*While he was still a long way off, his father saw him coming. Filled with love and compassion, he ran to his son, embraced him, and kissed him.* - Luke 15:20, NLT
+
+Prodigal means extravagant, even to the point of wastefulness.
+
+Most people think that the Parable of the Prodigal Son is about the younger son who was prodigal with his Father’s gifts. But it’s not about him.
+
+Some people think that the parable is about the older son who appears in the second half of the story. It’s not. Yes, the older son was prodigal with his hard work. But it’s not about him. The main character in the parable is the Father.
+
+It’s the father who’s the greatest prodigal, giving half of everything he owns to his younger son in the first place. He didn’t have to do it. He’s prodigal even to the point of wastefulness! Those who heard this story surely shook their heads in disapproval at the father!
+
+It is the Father who is the greatest prodigal, in his love and forgiving mercy towards his wayward child. And then, scandalously, the Father throws the biggest, noisiest party ever, so that the whole neighbourhood would know that there is joy in this home because his son has returned!
+
+Oh yes, this parable has the expansive, unbounded, extravagant love of the Father written all over it. It really is the Parable of the Prodigal Father. – Eliezer Gonzalez
+
+
 
 
 Back to top of: :ref:`eg-Reality`
@@ -2035,6 +2202,11 @@ Don’t allow unbelief to ruin the wonderful moments that Christ has in store fo
 
 
 Back to top of: :ref:`eg-Faith`
+
+
+
+
+
 
 
 
@@ -2286,6 +2458,50 @@ The Bible was not given to us to explain scientific principles. It wasn’t to b
  
 Jesus is the key that unlocks the meaning of Scripture. When you understand that, then you can understand how “every Word of God is pure.” – Eliezer Gonzalez
 
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Will Be Reunited with Jesus
+===============================
+
+*I am married to you.* - Jeremiah 3:14, NKJV
+
+Sixty years ago, Boris and Anna Kozlov were married for only three days before he had to ship out with his Red Army unit. When he returned, Anna and her family were gone – exiled to Siberia by Stalin’s purges. Then one day, on a chance encounter, they found each other again!
+
+“I thought my eyes were playing games on me,” Anna said. “I saw this familiar looking man approaching me, his eyes gazing at me. My heart jumped. I knew it was him. I was crying with joy.”
+
+80 years-old Boris had returned to visit his parents’ grave. As he stepped out of the car, he looked up to see Anna standing by her old house, where they had lived for the few days after the wedding.
+
+“I ran up to her and said: ‘My darling, I’ve been waiting for you for so long. My wife, my life...”
+ 
+This was an amazing reunion. However the book of Revelation (19:7–9) describes another amazing reunion between a bride and her husband. It will be when you are reunited with Jesus, face to face.
+ 
+Don’t worry about whether Jesus will recognise you or not. No matter how life may take its toll on you, Jesus will always recognise you. Because you’re his. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Can Have ...
+================
+... **an Overwhelming Assurance of Salvation**
+
+*I give them eternal life, and they will never perish. No one can snatch them away from me, for my Father has given them to me, and he is more powerful than anyone else. No one can snatch them from the Father’s hand.* - John 10:28–29, NLT
+
+Sometimes I don’t feel an overwhelming assurance of salvation. But I'm thankful that feelings are not a reliable guide to spiritual reality. God knows how untrustworthy our feelings are. That’s why, in the Bible, he provides many times what I can only call an “overwhelming assurance of salvation.”
+
+Look at Jesus’ promise in John 10:27–31. Jesus seals it with the identity of the Father and of the Son. There is nothing in the universe who can take away the eternal life that Christ has given you.
+
+These words are absolute. If you listen to the voice of Jesus, and follow him, you have eternal life, and you will never perish.
+
+The great people of the Bible all went through dark and difficult times. Elijah, Isaiah, and John the Baptist all felt in different ways that their connection with God was gone, that they had been abandoned, and that they were failures.
+
+We must break the connection, in our minds, between our feelings and our salvation. Our assurance depends on God’s incredible, generous gift alone. – Eliezer Gonzalez
 
 
 
