@@ -351,6 +351,104 @@ Some of the Children of Israel tried of find manna in their own way, with tragic
 The Bread of Life is there for us every day, free, and always meets our needs. It’s what gives us true life. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Lamb is the Temple
+======================
+
+*I did not see a temple in the city, because the Lord God Almighty and the Lamb are its temple.* - Revelation 21:22, NIV
+
+The Jewish people in Jesus’ day gave tremendous importance to the Jerusalem temple. They believed that the temple on earth connected worshippers with the true temple, which was in heaven. The New Testament also tells us of this heavenly temple that is superior to the earthly.
+
+But then Jesus came, and in his very first recorded public announcement, he announced himself as not only being greater than the temple (Matthew 12:6), but indeed, as the true temple Himself (John 2:19-21)!
+
+    * The temple is where the glory of God is revealed. Jesus is God’s greatest revelation (John 17:22; Hebrews 1:1–3).
+    
+    * The temple is where we learn the things of God. We learn them from Christ’s words and through his works (Matthew 11:29).
+    
+    * The temple is where God is worshipped. Where better to worship than at Jesus’ feet? (Philippians 2:9–10).
+    
+    * The temple is where atonement is made for sin. It was done in Christ’s own body (1 Peter 2:24; Hebrews 1:3).
+    
+    * The temple is where we find mercy. We are all invited to find mercy in the loving heart of Jesus (Matthew 11:28; Revelation 22:17).
+
+The prophet says that he did not see a temple in the New Jerusalem, because Jesus is the Temple. He always was (Acts 7:48; 1 Kings 8:27). – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+We Can’t Even Know Half ...
+===========================
+... **of What Awaits!**
+
+*Now we see in a mirror, dimly, but then face to face. Now I know in part, but then I shall know just as I also am known.* - 1 Corinthians 13:12
+ 
+The Apostle Paul, who claims to have visited Paradise (2 Corinthians 12:1–4) is also the same person who tells us that trying to understand what heaven is like is like looking into an ancient mirror: imperfect reflections of the reality. Mirrors in Roman times were mainly made from polished metal. When the prophets of the Bible talk about heaven, they are simply struggling to put into words what can never be described in human language.
+
+Marco Polo was urged by his detractors to recant—to withdraw the stories he had told about China and the lands of the Far East. I can imagine the dying Marco grabbing the collars of those people with his hands and pulling them down near his face so that they could hear what he had to say. And then the dying explorer said, 
+
+“I have not told half of what I saw.”
+
+The apostle Paul encourages us with these words which he quotes from Isaiah 64:4, 
+
+  *Eye has not seen, nor ear heard*, **nor have entered into the heart of man**, *the things which God has prepared for those who love Him.* 1 Corinthians 2:9
+ 
+If you have chosen Jesus Christ as your Lord and Saviour, hang on tight... it’s going to be a wonderful ride beyond your wildest dreams! – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Suffering Will End
+==================
+
+*Affliction will not rise up a second time.* - Nahum 1:9, NKJV
+
+One question that has fascinated me for many years is this: if God is going to wipe sin and suffering out, how do we know that it won't rise up again?  The Bible says that there will be peace and joy forever.
+
+There can be no love without free will. And the existence of free will means that, given endless time, there is always a possibility that sin will emerge again. That’s if we look strictly at probabilities. So why is it that God can guarantee that he will make an end of evil and suffering forever? (See also, for example, Revelation 21:4).
+
+There must, therefore, be something that acts through free will as an incentive never, ever to sin again. While some Christians like to use hell as the great motivator for loyalty to God, it cannot be the fear of hell that will keep the universe free of sin forever. It isn’t a sufficiently big motivator. Even from human psychology, we know that negative rewards are never as powerful as positive incentives.
+
+It is the full revelation of the character of the boundless love of God at Calvary that will forever protect the universe from sin.  As 1 John 3:16 (NIV) says:
+
+    *This is how we know what love is: Jesus Christ laid down his life for us.*
+
+- Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Will Shine Like the Sun
+===========================
+
+*The righteous will shine like the sun in the kingdom of their Father.* - Matthew 13:43, NIV
+
+Jesus’ explanation of the Parable of the Weeds (Matthew 13:24–30) ends with the beautiful promise that the righteous will shine like the sun in their Father’s kingdom (Matthew 13:43).
+
+In this life, it isn’t easy to distinguish the righteous from the unrighteous. Not all who are in church are righteous, and perhaps not all who are outside of church are unrighteous. There is deception on every side. The good and the bad seed grow up together. That’s what Jesus’ parable says.
+
+But, in the age to come, the righteous will shine like the sun. No one who sees the righteous will ever doubt that they belong to God. What is not always evident to others today will be forever made clear. When Jesus said this, he was thinking of these words of the prophet Daniel:
+
+Those who are wise will shine like the brightness of the heavens, and those who lead many to righteousness, like the stars for ever and ever (Daniel 12:2–3).
+
+The righteous are those who are not only righteous themselves, but who lead others to righteousness. They have discovered the source of righteousness, Jesus Christ the Righteous (1 John 2:1), and they point others to him.
+
+Very soon, the Lord will make it clear who are his and who are not (1 John 3:2).
+- Eliezer Gonzalez
+
+
 Back to top of: :ref:`eg-TheGospel`
 
 
@@ -1487,6 +1585,171 @@ But to be a fool for Christ also means that at the end of the play that is calle
 At some point or another, all of us are going to look foolish in some way or another, but the best kind of fool to be is a fool for Christ. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Plus God Are ...
+====================
+... **Always a Majority**
+
+*The least will become a thousand, and the smallest a powerful people.
+I am the Lord; at the right moment, I will hurry it along.* - Isaiah 60:22, CEB
+
+I’ve never felt quite like the majority. As a child I was very ill for several years, so I was always skinny and small. I was born overseas. I looked different, and I had to learn a whole new language. I got called a lot of names at school.
+
+As I was growing up, there were always people to remind me that I was useless and no good, and I guess that’s why I always tried to over-compensate at school and in other ways.
+
+Now that I am all grown up, I know that I’m expected to face all the challenges of life head-on, with confidence and courage, but I’ll let you in on a secret. Within myself, I’ve always felt small, weak, outnumbered and overwhelmed.
+
+Some years ago, I found a Bible verse that helped change my thinking, and it's our text for today:
+
+    *The least will become a thousand, and the smallest a powerful people. I am the Lord; at the right moment, I will hurry it along.* Isaiah 60:22, CEB
+
+This says that when the Lord is on your side, you are always a majority, just as a thousand outnumbers one, and a powerful nation outnumbers one small person. With the Divine majority that you have when God is beside you, you can face and overcome anything! (Zechariah 4:6). – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+No-one Will Just “Squeeze” ...
+==============================
+... **into Heaven**
+
+*God will give you a grand entrance into the eternal Kingdom of our Lord and Saviour Jesus Christ.* - 2 Peter 1:11, TLB
+
+Before I knew better, I used to say that I would be happy if I just made it into heaven as the pearly gates of the New Jerusalem were closing, if I could only just squeeze through. What an insult that is to God! But that’s what I used to say before I understood the grace of God.
+
+Not one of the saved will just “squeeze” into heaven!
+
+Christ will give you a grand entrance. The gates of heaven will be flung wide, angels will line the way and sing, and there will be shouts of joy as you enter in. No one will just “sneak” into heaven as if they didn’t belong there!
+
+If we have believed in Jesus, salvation is the easiest thing in the world! The Bible emphasises, from beginning to end, the breadth of God’s mercy, shown to us through Christ! (Ephesians 3:18–19). Whoever believes in him will be saved! (John 3:16). Salvation is inclusive in its breadth, capacity to save, and availability to humanity.
+
+When you know what God is like, then you know that no one will just squeeze into heaven. He throws the gates of heaven open wide, so that all who wish to, may enter in (Revelation 22:17). God will give you a grand entrance into Christ’s eternal kingdom. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Be a Dreamer
+============
+
+*Here comes that dreamer!* - Genesis 37:19, NIV
+
+Joseph was a dreamer. He was teased about it. He was bullied. He was almost killed by his brothers because of it. He spent years as a slave, and then in prison.
+Much good dreams were! And what kind of dreams were they? Dreams of a glorious future.
+
+And in the end, they all came true.
+
+I think of another Dreamer. They killed him, you know. When you forget how to dream, you kill the dreamers. Dreamers are inconvenient. They are the martyrs who remind us all of what we could be and should be. The dreamers are the ones who sow the world with hope.
+
+That Friday and Saturday night the whole earth dreamt, groaning indignantly at the secret it held. But there was no one to notice. Had everyone forgotten how to dream?
+
+But the next morning – it was a Sunday – the world changed forever. In one single explosion of glory, all the dreams of good that had ever been dreamt peeked in on the world with the rising sun, and said hello.
+
+The Dreamer returned, and all our dreams came true. The dreamers became the realists, and the realists became the fools. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Will Make All Things New
+============================
+
+*Then He who sat on the throne said, “Behold, I make all things new”.* - Revelation 21:5, NKJV
+
+The Biblical pattern of redemption can be represented as:
+
+    * Creation
+    * Fall
+    * Atonement
+    * Re-creation
+
+This is a pattern that is found throughout the Bible, and that forms the crucial backbone to the salvation story.
+
+The gospel focuses on the “atonement” part of this story, and the results of the atonement are the “re-creation” part of the story. Christ’s promise is to “make all things new” (Revelation 21:5; Compare with 2 Cor 5:17.)
+
+New life is always the result of the gospel. It is spiritually fulfilled for the person who is “in Christ” right now, and it will be physically fulfilled for that person at the second coming, in the Kingdom of Glory.
+
+The atonement of Christ – the Cross and Resurrection – stands at the heart of the Biblical Redemption Pattern. It shines its glory back upon creation, and forward onto the coming re-creation.
+
+You and I are not what we could and should be. But we are not what we were. Because of the Gospel, we have been saved, and as a result, right now, we are being re-created in Jesus Christ, by His Spirit. We are sealed by that same Spirit until the day of glorification, when we will be given new bodies (1 Corinthians 15:35–49), and a new nature that forever pleases God. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus Blesses the Wrong People
+==============================
+
+*Blessed are the poor in spirit, for theirs is the kingdom of heaven.* - Matthew 5:3, NIV
+
+It often seems like Jesus blesses all the wrong people! We all want to be blessed, don’t we? So why did Jesus apparently bless all the wrong people in the Sermon on the Mount?
+
+Those whom society and religion often consider to be blessed don’t get the blessings that Jesus offers, because they don’t think that they need them. Jesus promises the kingdom of heaven (Matthew 5:1). Who needs the kingdom of heaven if they’re trying to make their kingdom here on earth? He promises justice (v.4). Who wants justice if your lifestyle is built on the exploitation of others? Jesus blesses the poor in spirit, those to mourn, and the meek, because these are the people who understand their need and are open to his blessings.
+
+Like Jesus says in the very next chapter, the self-righteous and those who seek only material blessings in the here and now, already, have received all the reward they will ever get (Matthew 6:2, NLT).
+
+How sad for them! Because they did not seek first for the spiritual treasure – the Kingdom of God and his righteousness (Matthew 6:33) – they will miss out on what is of true, eternal worth. They miss out on the blessings.
+
+In the end, the wrong people, by accepting Jesus’ blessing, become the right people. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Solve Your Problems ...
+=======================
+... **the Right Way**
+
+*Jesus then took the loaves, gave thanks, and distributed to those who were seated as much as they wanted.* John 6:11
+
+What’s the right way to solve your problems if you are a follower of Jesus? The answer is found in the Bible story of how Jesus fed the five thousand. We are told that there was a great crowd of people, and they were hungry (John 6:5).
+
+In this story, there are three responses to this problem.
+
+The first response is from Jesus’ disciple Philip. He looks at the problem and concludes that the problem is too big to solve. He says there’s too many people.
+
+Then Andrew, another disciple, gets involved. He looks at the available resources and concludes that they are too few. He says that they don’t have enough food.
+
+But the right way to solve your problems is to do what a boy in the story did. He didn’t look at the problem, and he didn’t look at the resources. He looked to Jesus. He had five loaves and two fish, and he placed what he had in Jesus’ hands. And that’s when the miracle happened.
+
+There is a right way to solve your problems. If you look at the problem you’ll be overwhelmed. If you look at your resources you’ll be depressed. But the right way to solve your problems is to place what you have in Jesus’ hands and to trust in him. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Your Best Days Are Ahead of You
+===============================
+
+*God... gives life to the dead and calls things that don’t exist into existence.* - Romans 4:17, CEB
+
+I read a very sad and surprising news report on a website recently. It said that the most likely demographic to commit suicide in Australian society are not the young people, but men over 85 years of age.
+
+There’s another old fellow that we read about in the Bible (in Romans) called Abraham. The Bible tells us that he was around 100 years old; so old that the Bible says that he counted his body as good as dead (Romans 4:19).
+
+But what he didn’t know was that his best days were ahead of him. That’s true for all who believe and trust in Jesus Christ. Because of his faith in God, Abraham inherited the whole world (Romans 4:13).
+
+Whatever may be lacking in your life, God can call into being. We have a God who “gives life to the dead and who calls into being things that were not” (Romans 4:17). He can do this because he is the one who gives life to the dead.
+
+When you feel like you’ve hit your dead end, remember the story of Abraham.  When you’re a believer in Jesus, your best days are always ahead of you. Like Abraham, the fulfilment of all of God’s promises are just around the corner, and you’re about to inherit the world! – Eliezer Gonzalez
+
+
 
 Back to top of: :ref:`eg-Challenges`
 
@@ -2234,6 +2497,23 @@ The angel said to Joseph,
 There’s no magical power in the name of “Jesus”, but all the power of omnipotence belongs to the One who bears it. Through Jesus, all the treasures of heaven are at the disposal of God’s children. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is Better
+===============
+
+*The ministry Jesus has received is as superior to theirs as the covenant of which he is mediator is superior to the old one, since the new covenant is established on better promises.* - Hebrews 8:6, NIV
+
+Jesus is better than any other of God’s revelations to humanity (Hebrews ch.1). He is better than any other member of the human family (ch.2). Jesus is better than Moses, or any of the other prophets (ch.3). Jesus is a better leader than Moses because he takes us to a better rest (ch.4). He is a better High Priest (ch.5), who gives us the better things of salvation (ch.5.) Among his gifts, he gives us better blessings, because he has given us a better hope (ch.6.). Jesus is the mediator of a better covenant, which is based on better promises (ch.7).
+
+This better covenant is also based on a better sacrifice (ch.9). This ensures heaven for us, which is better than anything else we can possess (ch.10.) Those who possess heaven will take part in a better resurrection (ch.11.) Whatever we have in this life, God has planned something better for us (ch.11) in eternity to come. God has provided a place for us in the heavenly Jerusalem, the city of the living God, our true home (ch.12). This is all possible because the blood of Christ is better and more powerful than anything that we could offer (ch.12.)
+
+That’s a summary of the whole book of Hebrews, and that’s why I love it. Jesus is better! – Eliezer Gonzalez
+
+
 
 Back to top of: :ref:`eg-Reality`
 
@@ -2418,6 +2698,65 @@ The Greek word translated here as “threw” implies haste, and even force. Jes
 That was when the real party began, as a mother and father received their daughter back to life again.
 
 Don’t allow unbelief to ruin the wonderful moments that Christ has in store for you. As Jesus said to Jairus, Don’t be afraid; just believe. – Eliezer Gonzalez
+
+
+You Get Free Fruit in the Kingdom
+ 
+The Holy Spirit produces this kind of fruit in our lives: love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control (Galatians 5:22–23, NLT).
+
+There’s a supermarket near where I live, where I often go to buy food. As you come in, there’s a basket full of apples, bananas and pears, and above it is a sign: “Free Fruit for Kids.” Paul tells us in Galatians 5:22–23 that God gives free fruit to his children as well.
+
+Although everyone is given different spiritual gifts (1 Corinthians 12:8–10, 29–31), every follower of Jesus receives the fruit of the Spirit, without distinction. After writing about the spiritual gifts, Paul says that there is something even better:
+I will show you the most excellent way (1 Corinthians 12:31).
+
+Then Paul goes on to write about the supreme importance of love, which is part of the fruit of the Spirit (1 Corinthians 13:13).
+
+The problem with the Corinthian church was that they were giving more importance to the gifts of the Spirit than to the fruit. We must be careful not to make the same mistake. (1 Corinthians 13:3).
+
+The gifts of the Spirit are wonderful! However the fruit is even better. The fruit is given to every follower of Jesus, and it is the fruit that distinguishes a Christian from a non-Christian (John 13:35). And best of all, it’s free!
+
+My favourite fruit is the fruit of the Spirit. – Eliezer Gonzalez
+
+
+Give Jesus ...
+==============
+... **Your Full Attention**
+
+*Fixing our eyes on Jesus...* - Hebrews 12:2, NASB
+
+Digital technology brings us many benefits. However, one of the harmful effects of digital technology is called Continual Partial Attention, which means that we are continually dividing our attention between various things. This can be especially harmful on our relationships.
+
+Let’s think about our relationship with the Lord Jesus Christ. The book of Hebrews tells us that the secret of a successful Christian life is to be fixing our eyes on Jesus (Heb 12:2).
+
+The Greek word used here literally means to take our eyes off everything else and to “stare” at something else.
+
+We need to set aside time every day, away from our phones and all other distractions, to just be with God. This takes discipline, but it’s so worthwhile!
+
+In addition to setting ourselves aside for God on a regular basis, we should also develop the practice of keeping God foremost in our thoughts throughout the day. We must develop the “practice of the presence of God” as Brother Lawrence called it. We do this by recognising that God is in every activity that we are engaged in throughout our day.
+
+At the cross, in spite of his own situation, Christ gave his Continuous and Complete attention to you and your salvation (Luke 23:34.) Doesn’t he deserve the same from you? – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Be Remarkable
+=============
+
+*You are a chosen people, a royal priesthood, a holy nation, God’s special possession, that you may declare the praises of him who called you out of darkness into his wonderful light.* - 1 Peter 2:9, NIV
+
+God calls you to be remarkable! That means that people will remark about how you stand out from the crowd, but for all the right reasons.
+
+Throughout history, it’s been Christians who have been the explorers, pioneers, the innovators, the creators, and those who have forged ahead to new horizons.
+
+The idea of the individual is a Christian idea, and so is the whole idea of human rights. The idea of equal rights for men and women was originally a Christian idea. The abolition of slavery came through Christianity. The idea of universal public schooling is a Christian idea. The first hospitals were a Christian invention. The idea of the university is a Christian invention as well. The originator of every single branch of modern science was a Bible-believing Christian. Arguably, most, if not all, of those landmarks of western civilisation would not have come about without Christianity.
+
+All of these things happened – in effect the establishment of western civilisation – because of Christians who believed that God had called them to be remarkable: people who represent the Kingdom of Heaven right here in this world.
+
+So, don’t let the world get you down. If you have the assurance of salvation, if you know that you’re going to live forever, then all bets are off, aren’t they? Your potential is limitless! – Eliezer Gonzalez
+
 
 
 
@@ -2745,6 +3084,109 @@ Grace brings us all down to the same level, because at the foot of the Cross the
 Saul, a man of learning, privilege, and power, bent his knee in awe at the foot of the Cross. When he did that, he became Paul – a completely new person.
 
 You and I must also kneel at the foot of the Cross, to be able to say, “By the grace of God, I am what I am.” – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Must Eat Jesus’ Flesh ...
+=============================
+... **in the Kingdom**
+
+*I tell you the truth, unless you eat the flesh of the Son of Man and drink his blood, you cannot have eternal life within you.* - John 6:53, NLT
+
+Jesus said some things that were offensive within his own religion and culture.
+This verse above just one example.
+
+Soon after Christianity’s emergence, it was condemned within the Roman Empire as a dangerous new cult. Christians were accused of practising cannibalism by eating the body and drinking the blood of someone they called Christ. This was a misunderstanding of what is called the Lord’s Supper or the Eucharist.
+
+When Jesus spoke about eating his flesh and drinking his blood, he was actually talking about true religion. What Jesus meant is that it's got to be personal. Jesus was saying that you don't receive eternal life by understanding concepts or by believing the right things, but instead by a personal and intimate relationship with him. Jesus must be more important to us than our very food and drink, and closer to us than the nourishment that courses through our body and gives us life.
+
+This requirement for salvation offends our deepest need to consider ourselves to be the masters of our own destiny. It means surrendering all that we are and hope to be, and everything we think and all that we have, to the Carpenter of Nazareth. For those who refuse to do this, it really is offensive. But for those who embrace it, this means eternal life. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is Never Too Busy ...
+===========================
+... **for You**
+
+*“Why are you sleeping?” he asked them. “Get up and pray so that you will not fall into temptation.”* - Luke 22:46, NIV
+
+We live in a society where everyone is too busy doing something else other than what we should be doing.
+
+On the night that he was betrayed, Jesus was praying in the Garden of Gethsemane.  After a while, Jesus, who had asked his disciples to pray also (v.40), went and found them sleeping. I had never understood the meaning of what Jesus said to them before. I thought that Jesus was upset with them.
+
+True, Jesus was disappointed in them, but more than that, he was concerned for them. He knew that over the next three days they would experience the most difficult time of their lives. That’s why, no matter how busy he was, he took the time to warn them and to encourage them for the disappointment that was to come.
+How wonderful it is to see, that even at this most difficult of his life, our Lord had time for his disciples! Jesus is never too busy for you. Even when your world is falling apart, Jesus still has time for you.
+
+Hebrews 1:3 says that Jesus sustains “sustaining all things by his powerful word.” And even if you’re asleep and disobedient like the disciples, he still has time for you. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Prayer in Lonely Places
+=======================
+
+*Jesus often withdrew to lonely places and prayed.* - Luke 5:16, NIV
+
+If you can pray at any time and in any place, why did Jesus have to go to lonely places to pray?
+
+It’s the same reason we all need a quiet place, away from the distractions of our everyday lives. We can speak to God at any time, but we do need a quiet space to hear his voice. When you create space in your life for God, he fills it.
+
+I often go for a long walk outside, typically along a quiet road or sit in a peaceful place in nature, where I can simply spend time with God. When I pray in this way, I’m acknowledging that prayer isn’t just me speaking to a seemingly silent God. I have discovered that God is desperately longing to speak to me in many different ways. Prayer involves listening for the voice of God, allowing his heart to be revealed to me. Prayer is receiving his blessings.
+
+It’s vital for every child of God to make space in their lives for God. That’s why Jesus “withdrew to lonely places and prayed.” We all need a “lonely place” to pray. But, here’s what I’ve discovered. That “lonely place” for prayer is never really lonely, because when you sense the presence of God, that’s when you most know that you are never alone. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Beyond the Trappings ...
+========================
+... **of Christianity**
+
+*And when they had crucified him, they divided his garments among them by casting lots.* - Matthew 27:35, NIV
+
+The trappings of Christianity – the beautiful music, the caring friendships, the feeling of belonging – can be enticing, but don’t be fooled. You can either seek the trappings or the Christ, but if you seek the trappings, you’ll never have the Christ!
+
+The people in charge of Jesus’ crucifixion were a squad of Roman soldiers. John 19:23 suggests that the crucifixion squad consisted of four men, which makes sense. There was a centurion, and then three soldiers. This would have been enough for the three soldiers to have held down both arms and the legs of the condemned man as the nails were driven home, with the centurion to oversee.
+
+John 19:23 tells us that the soldiers divided Jesus’ garments into four shares. His tunic was left over. This seems to have been the most valuable item of clothing Jesus had. Because it had no seam, the soldiers decided not to rip it up. Instead, they decided to gamble for it.
+ 
+I wonder what the man thought who won it? Did he go home feeling a winner? While the Son of God died in agony for the sins of the world, the soldiers squabbled over the trappings. That was their focus, but it shouldn’t be ours.
+ 
+The trappings of Christianity can never substitute for the real thing: Jesus Christ himself. - Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Your Great Ambition
+===================
+
+*It has always been my ambition to preach the gospel where Christ was not known.* - Romans 15:20, NIV
+
+I’ve discovered the greatest ambition of all! It’s the ambition that Paul expresses in Romans 15:20.
+
+I used to think that was unique to Paul, because he was an apostle and a preacher, but now I realise that it must be the greatest and all-consuming ambition of every follower of Jesus Christ. You don’t have to jump on a plane and go and preach where people have never heard of Christianity. Most people you associate with every day, maybe even your family, have the wrong idea about God, about how good he is, and about what he has done to save them. They need to hear the Gospel of Jesus Christ.
+
+Not everyone has the gift of preaching.  Not everyone can be a missionary in faraway countries. But sharing the Gospel is not just about words. It’s all about what others see that you put first in your life. When you put God first, you will certainly make an impact for Jesus where he isn’t yet known.
+
+So, make Paul’s ambition your ambition: to preach the Gospel of Jesus Christ where he is not known. The greatest thing that you can ever achieve in this life is simply sharing the Gospel. – Eliezer Gonzalez
+
 
 
 

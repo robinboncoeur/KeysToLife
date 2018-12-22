@@ -94,8 +94,10 @@ One wrong word or act would have destroyed Christ’s claims to be God, but **th
     :width: 200px
 
 
-The Grace of the Lord Jesus is With You
-=======================================
+The Grace of the Lord Jesus ...
+===============================
+... **is With You**
+
 *The grace of our Lord Jesus Christ be with you all. Amen.* - Revelation 22:21, NKJV
 
 The Bible closes with this blessing. It is a summary of all of the blessings that God has promised us. Grace abounding! Divine favor, unbought, unsolicited, and undeserved! The Bible begins and ends with this.
@@ -107,5 +109,20 @@ When Jesus said "it is finished" as he died on the Cross, he broke down the barr
 
 We accept this grace simply by taking it as it is, and as we are; by letting it flow into us; by believing what God says about it. Grace does not ask us to prepare to receive it, in fact we must be worthless and guilty. If we needed to be anything else before receiving it, grace would be not grace. – Horatius Bonar
 
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus Christ is the Way ...
+===========================
+... **to Salvation**
+
+*No one can come to Me unless the Father who sent Me draws him; and I will raise him up at the last day.* - John 6:44, NKJV
+
+Faith alone, when based upon the sure promises of God, must save us. All that human ingenuity can devise, no matter how holy and attractive, contributes nothing to our salvation according to God’s way. God saves us in a different way from that which we ourselves plan. Humans can forever do what they want, but they can never enter heaven unless God takes the first step with his Word, which offers them divine grace and enlightens their hearts to show us the right way.
+
+The right way, however, is the Lord Jesus Christ. Whoever desires to seek another path has already missed the right way; for Paul says to the Galatians: “If righteousness comes through the law, then Christ died in vain” (Galatians 2:21). Therefore I say people must fall upon this Gospel and be broken to pieces and in deep consciousness lie prostrate, like someone who is powerless, unable to move hand or foot. You must only lie motionless and cry: “Almighty God, merciful Father, help me now! I cannot help myself. Christ, my Lord, help me now, for with my own effort all is lost!” – Martin Luther
 
 

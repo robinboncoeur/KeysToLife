@@ -593,7 +593,132 @@ When we turn to the Lord, we suddenly see how those Old Testament laws, types, s
 It is only out of gratitude: the only obedience God will accept is the obedience of gratitude. He will not accept any other. Whatever is not of faith is sin (Rom 4:23). – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
+
+You Are Reconciled with God
+===========================
+
+*For if while we were enemies we were reconciled to God by the death of his Son, much more, now that we are reconciled, shall we be saved by his life. Then as one man’s trespass led to condemnation for all men, so one man’s act of righteousness leads to acquittal and life for all men.* – Romans 5:10,18, RSV
+
+How few, even of professing Christians, understand these words! These verses clearly affirm that the atonement of Christ restored the whole human race to favour with God. Christ is our peace, having broken down the wall between God and humanity. By his own blood, Christ signed the ransom papers for the race. Unlike most of the panaceas offered to humanity, this one has to do not with a subjective experience but an objective reality: salvation was accomplished historically, outside of, and independent of ourselves. And the gospel is the glad announcement of that event.
+
+Calvary is the double cure for sin. It takes away both sin’s guilt and its power. The revelation of the atoning God breaks the believer’s heart, freeing it from the bondage of self-centred existence. Looking on the Cross, the believer sees the holiness of God, and repents; sees the love of God and believes; sees the power of God and is born again. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Sees You ...
+================
+... **as If You’d Already Arrived**
+
+*God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus.* - Ephesians 2:6, NIV
+
+If you have a healthy conscience, it should condemn you many times a day. But this verse refers to a heavenly place of rest! Isn’t it restful to know that you have a heavenly place of rest right now?
+
+Despite the fact that we have a conscience that says, “You should have done that better. Look, you still haven’t done this or that”, when you read this verse, it says that God looks at you and sees you as if it’s all over, as if you’ve already made it home.
+
+God sees you as if you were already at home. He sees you at the end of the pilgrimage. He sees you seated there in heavenly places with his Son.
+
+That’s not only how God sees you, that’s also how he treats you. He treats you as though you have already arrived.
+
+Here is how it works. Here I am, messing around, failing, foolish, evil, but I want to do the right thing, so I'm looking to Jesus. When I do that, God says, “I see that you are looking to Jesus. That means I see you as already at home.”
+
+If you trust in Jesus, you are resting in heavenly places right now. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Are Sealed for Heaven
+=========================
+
+*You were sealed for the day of redemption.* - Ephesians 4:30, NIV
+
+There is deep meaning behind the Biblical concept of sealing. It means many things. When a seal, in ancient times, was placed on an object, it gave it its own imprint. So when the Holy Spirit seals us, he brings the character of God to us, which is love.
+
+A seal is also a sign of protection. In Revelation 7, there is a group of people who are sealed. They are the ones who are protected (See also Genesis 4; Ezekiel 9). So, a seal or a mark becomes a sign of protection, a sign that those, who by faith in Jesus have received the indwelling Spirit, are perfectly safe. But sealing means even more than that.
+
+The Israelite high priest had a mitre on his forehead – a kind of headdress – that had written on it, “Holiness to the Lord”. We are all called now to be God's priests. We are all called now to reflect God’s holiness.
+
+Holiness means that you take God into account in everything. Anything less is not Christian. Anything less is just fooling ourselves. Either God is the Lord of all or he is not Lord at all. You can't be a half-Christian (Ephesians 4:31–32). – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Has a Plan ...
+==================
+... **to Get Us to Heaven**
+
+*God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus, in order that in the coming ages he might show the incomparable riches of his grace, expressed in his kindness to us in Christ Jesus.* - Ephesians 2:6–7, NIV
+
+When God gave the gift of free will he knew when, where and how that gift would be abused. He knew how he would overrule the tragedy and bring good out of it. He made it so that even the darkest deed ever, that most awful event when God, the Son himself was crucified by his creatures, should echo the glory of God throughout eternity. He made it so that even in that vilest event, the angels and all created beings would see the height, depth and length and breadth of the love of their Creator in a way they would have never have known otherwise but for the fall.
+
+God was not asleep. God was not taken by surprise by the fall! He anticipated it. The New Testament teaches us that God had a mystery from eternity that the Lamb would be slain. Sin was no surprise to God.
+
+God could have made us robots – mere puppets – but God loves liberty so he made you free. But because he knew that his creatures would abuse their freedom, he was resolved that he would overrule that for good.
+
+God is love. Ultimately, whatever he does is to increase the joy, love, and gladness throughout the illimitable realms of his universe. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Need Not Fear the Judgment
+==============================
+
+*Whoever believes in him is not condemned, but whoever does not believe stands condemned already because they have not believed in the name of God’s one and only Son.* - John 3:18, NIV
+
+The Crucified One is to be the Judge of sinners. This is Good News indeed!
+God’s judgment is not to be just an indictment because of sins committed. In fact, the real issue is not primarily the sin question but the Son question. Jesus said that whoever believes in him is not condemned.
+
+What right has the Creator of a moral universe to act so? The answer is at the very heart of the gospel. God’s judgment on sin, his wrath against it, has already taken place! Christ, “who knew no sin,” has been made to be sin itself for us:
+
+    *“that we might be made the righteousness of God in him”* 2 Corinthians 5:21 
+    
+    *“one has died for all; therefore* **all have died**” 2 Corinthians 5:14
+
+God's law, being a description of his own character, could neither be flouted or revoked. Its penalty had to be paid. But who would have thought that God himself would pay it? That’s why, now, the real issue is not primarily the sin question but the Son question (John 5:4).
+
+God’s defining quality is love. And therefore it is written,
+
+    *Herein is our love made perfect, that we [guilty sinners] may have boldness in the day of judgment.* 1 John 4:17, KJV
+    
+– Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Can Look Forward ...
+========================
+... **to Christ’s Return Without Fear**
+
+*He made us accepted in the Beloved.* - Ephesians 1:6, NKJV
+
+How is it possible to look forward to the appearance of Christ the great Judge, and not panic while being aware of our own personal imperfections? The answer is that the second coming of Christ must always be viewed through the lens of the first.
+
+Those who look to the second advent as the great saving act have failed to rightly distinguish that event from Calvary. It was at Calvary that the Saviour declared, concerning our reconciliation with heaven, "It is finished" (John 19:30).
+
+Those who by faith have been crucified with Christ understand that the wrath of God has already been exhausted on their Substitute and Surety, Jesus Christ. They know that they are "complete in him," "accepted in the Beloved," and for them there is no condemnation, neither today, nor at the hour of his appearing (Colossians 2:10; Ephesians 1:6; Romans 8:1,33-34).
+
+The Book of Revelation clearly points to the second coming of Christ. That same book opens with allusions to Christ being pierced for us, his having been dead, and his passage through the grave.
+
+There are no grounds for panic theology as we study Revelation, the book of the parousia. The returning One is he who once hung upon the cross for our sakes. Our future is in his hands. – Des Ford
 
 
 
@@ -2478,6 +2603,49 @@ How sweet it is to hear this news! You need to say this, “I am a sinner, I hav
 There is no need for your soul to be oppressed by guilt, to feel weighed down and burdened by mistakes. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is the Rock
+=================
+
+*In the days of these kings the God of heaven will set up a kingdom which shall never be destroyed; and the kingdom shall not be left to other people; it shall break in pieces and consume all these kingdoms, and it shall stand forever.* - Daniel 2:44, NKJV
+
+Our Lord's expression “kingdom of Heaven", synonymous with the “kingdom of heaven”, comes from Daniel. In Daniel chapter two, the prophet gives a description of the kingdom of heaven: "A rock cut out of a mountain, but not by human hands" that "became a huge mountain and filled the whole earth" (Daniel 2:45,35, NIV). It's from here that our Lord drew the expression "the kingdom of Heaven" (see verse 44). His parables, and many of his instructions, are based on this kingdom theme.
+
+We find Christ in the stone of Daniel 2. Jesus adopted this image when he said:
+Whosoever shall fall upon that stone shall be broken; but on whomsoever it shall fall, it will grind him to powder (Luke 20:18; Matthew 21:42,44 KJV).
+
+Jesus is using the exact words of the Greek translation of Daniel 2:45 onwards, about the stone smiting the image. He is applying the stone to himself (see also Matthew 16:18).
+
+The Hebrew word for stone is "eben." The word for son is "ben." Scholars have pointed out that “the Son of Man" pictured in Daniel 7:13 is already implicit in the stone of Daniel 2:34. This is “word punning” or paronomasia. Christ is the "eben" (stone) of Daniel 2, and the "ben" (Son) of Daniel 7. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Lamb is the Light
+=====================
+
+*And the city has no need of sun or moon, for the glory of God illuminates the city, and the Lamb is its light.* - Revelation 21:3, NLT
+
+No one is ever scared of a lamb. The reason we are drawn to follow Christ and to serve him is not the hope of heaven, nor fear of hell: it's because he is so approachable and so loving.
+
+The Lamb is the light of the heavenly city, because the Lamb is full of light! Consider the first chapter of Revelation, and verse 12. Here, the apostle John says that he,
+
+    *turned to see the voice that spoke with me. And having turned I saw seven golden lampstands*
+
+The seven golden lamps shine light everywhere, and John sees Jesus in the midst of the lampstands (v.13). Read the description of Jesus here and you will see that he is full of light (vv.13–16).
+
+The book of Revelation begins with a picture of the light of Jesus displacing the darkness, and ends with a picture of Jesus as the eternal light of the heavenly city. What attracts us to follow the Lamb is his light: the revelation of his goodness, the revelation of his love, the revelation of his kindness. The Lamb who loved us enough to die for us.
+
+Consider also that the Lion of the Tribe of Judah is the Lamb. Isn't that amazing? Christ’s strength is seen through his sacrifice, and not by killing his enemies. – Des Ford
+
+
 Back to top of: :ref:`df-ChristOurSalvation`
 
 
@@ -3581,7 +3749,212 @@ When you are feeling discouraged, here is a good one to remember:
 Remember that it’s **easier to be saved than to be lost**. The Spirit of God pleads with us, keeps us awake at night, and even allows trouble to come our way, so that we might acknowledge our need of him and seek Him. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
+
+Turn to Jesus ...
+=================
+... **in the Midst of Trouble**
+
+*Affliction does not come from the dust, nor does trouble spring from the ground; Yet man is born to trouble, as the sparks fly upward. But as for me, I would seek God, and to God I would commit my cause — who does great things, and unsearchable, marvellous things without number.* - Job 5:6–9, NKJV
+
+There are three things to notice in Job 5:6–9. The first one is that affliction is not purposeless. It doesn’t just “spring up out of the ground”. It isn’t random.
+
+It’s true that we often cannot see the purpose of affliction. Then we are fulfilling the words of our Lord when he said,
+
+    *What I am doing you do not understand now, but you will know after this.* John 13:7, NKJV
+
+The Bible also tells us that,
+
+    *No chastening seems to be joyful for the present, but painful; nevertheless, afterward it yields the peaceable fruit of righteousness.* Hebrews 12:11, NKJV  (see also Hebrews 12:6)
+
+The second thing to notice is that affliction is, sadly, normal. The text says that “man is born to trouble.” Just as surely as the sparks go up when you are sitting around a campfire, so too you and I were born to trouble. There is no dodging it.
+Trouble is, in fact, it is one of the most necessary parts of life. The worst evil that can come upon us is the delusion of self-sufficiency. Trouble saves us from that terrible fate, and its awful results.
+
+However, the third and most important thing in this text is that it tells us that trouble makes us seek God. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Have a Passport ...
+=======================
+... **to the Kingdom**
+
+*The Son of Man must be lifted up.* - John 3:14
+
+Christianity doesn’t teach that human nature is essentially good. On the contrary, Christ takes for granted our evil nature. "If you then, being evil…," he says. (Matthew 7: 11). That’s why we require a far more radical change than what is offered by education, psychology, or politics.
+
+In John 3, Christ explains the change we need. The first time the word “must” occurs in John 3 is in the statement "You must be born again" (v.7). But the second time it occurs is where we read, "so the Son of Man must be lifted up" (v.14). This is the key we seek: salvation comes through beholding the Christ of the Cross.
+
+Faith is looking, faith is believing, faith is receiving: but all these terms refer to our relationship to Jesus. We shouldn’t be confused about what “believing in Jesus” means. Our Lord has told us that believing is merely coming in heart, mind, and will to Him (See John 6:35).
+
+The goodness of God leads us to repentance, and the kindness and mercy of God our Saviour turns us away from sin. When we see that God loved us so much as to become like a common criminal, and hang on a cross for our sakes, it is then that love is awakened in our hearts for our Maker. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Story of Two Cities
+=======================
+
+*I saw the Holy City, the new Jerusalem, coming down out of heaven from God, prepared as a bride beautifully dressed for her husband.* - Revelation 21:2, NIV
+ 
+The Bible is a tale of two cities. In the very first book of the Bible, you read about the city of Babylon. In Genesis 11 there is an attempt to build a tower to heaven so humanity will be safe from a future flood. This is the beginning of Babylon.
+
+At the Tower of Babel, the people said, "Let us make for us a name." Today we don't know even one of their names. Every human way to heaven fails.
+
+The same book of Genesis talks about a second city, Salem. Salem later became Jerusalem.
+
+Daniel, in the middle of the Bible, introduces these two cities in the very first breath of the book (Daniel 1:1–2, NIV). Right from the start in the book of Daniel, Babylon opposes Jerusalem and the temple. All the way through the book we find that opposition to the sanctuary symbolises the opposition of the enemies of God to the people of God, and the gospel of God.
+
+So the first book of the Bible is a tale of two cities: Babylon and Jerusalem. The last book of the Bible, Revelation, also talks of these same two cities: the holy city and the unholy city. The conflict between Jerusalem and Babylon is an important theme of the Bible, and it continues today. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Can Equip You
+=================
+
+*May the God of Peace... equip you with everything good for doing his will.* - Hebrews 13:21, NIV
+
+Often, when I look at my own very, very meagre, disappointing accomplishments, I think of Dwight L. Moody's great saying. Reporters asked Moody,
+
+"Mr. Moody, have you got courage enough to be a martyr?"
+
+"No," said Mr. Moody, "but if God wants me to be a martyr, he'll give me the courage."
+
+You and I don't have much. We are like tiny containers that can't hold much. But we can overflow a lot.
+
+If we learn the secret of the Presence of God, however weak, however fragile, however foolish we may now be, God can equip us. However inadequate we are for life – and we all are – God can equip us. However, none of us can do everything by ourselves. We weren't made for that. We need other people.
+
+But God can equip us to do what he wants us to do. God wants us to do that one thing which we can do better than anybody else: influence the people we know best. Every one of us has more influence with certain people than the rest of the whole wide world has.
+
+God can equip you for the most important thing in your life: how to influence people for God. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Heaven Begins ...
+=================
+... **When You Believe in God’s Love**
+
+*This corruptible must put on incorruption, and this mortal must put on immortality.* - 1 Corinthians 15:53, NKJV
+
+The sinful nature is like the house of a leper in the Old Testament. Do you know how they fixed the house of a leper? They didn’t whitewash it or cut out a bit here and a bit there. They took down the whole thing. And that is what God is going to do with us. He is going to take the whole thing down.
+
+Until glorification, my worst enemy is Des Ford; nobody else. And your own worst enemy is you.
+
+All of my troubles come from within, and not from outside me. Don’t blame others. People can only hurt you as you let them. Life can only get to you if you let it get to you.
+
+When you receive the Holy Spirit, you receive the beginning of glorification, the beginnings of the everlasting day of glory. It’s the beginning of heaven!
+
+If you have believed, then God has come to dwell with you. You have eternal life. When you believe, the Spirit tells you that God loves you. He loves you when you fall. He loves you when you’re down. He loves you when you make mistakes. He loves you when you do stupid things. God loves you even when you don’t love him.
+
+So, believe in God's love for you. That’s the beginning of heaven. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Store Up Your Treasure ...
+==========================
+... **in Heaven**
+
+*For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you through his poverty might become rich.* - 2 Corinthians 8:9, NIV
+
+There’s a story of a shipwrecked sailor on an inhospitable island. He was dying of hunger. One day a box was suddenly swept to shore and he rushed eagerly to open it. But he fell back to the ground with bitter disappointment, because the box was full of gems and pearls. It was filled with riches that could not sustain his life.
+
+The man in our Lord's story in Luke 12:13–21 was a fool. He left out the greatest factor in life. He forgot God. The deceptiveness of covetousness is that if God is forgotten, life will not work out.
+
+How shall we save ourselves from this trap of covetousness? How shall we avoid being like the foolish wise man?
+
+Every Christian should have as his dearest desire to give all he can to foster the gospel of the grace of our Lord Jesus Christ. Our Lord Jesus exchanged all heaven for a cow-shed and a cross. As we consider that, what shall we withhold from him?
+
+Giving is the antidote to selfishness and covetousness. Only those who practice regular, systematic giving to the cause of the gospel will be safe and saved at last.
+
+May God guide us as we reflect on our responsibility to give. May we become like him in our giving. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus or Caiaphas?
+==================
+
+*You will see the Son of Man sitting at the right hand of Power, and coming on the clouds of heaven.* - Matthew 26:64, NASB
+
+During his trial, Jesus was brought before the high priest. Caiaphas was possibly the most powerful religious leader in the land. Twenty thousand priests served him and his word was law throughout the nation. His duty was to save the Jewish church from its enemies.
+
+During his last recorded day of preaching and teaching, Jesus accused the religious leaders of blaspheming God, and of being thieves and murderers because they put religious rituals above the important things of God’s law: love, righteousness, mercy and faith.
+
+Here we see the contrast between the church leaders and Jesus. Jesus accused them of being heartless leaders of a meaningless temple, the blind leaders of the blind, the fanatics who had lost all sense of the really important things of God. And Jesus said he had come to save the church—their church! No wonder they were angry and afraid! Jesus challenged everything they stood for.
+
+The same can happen to any religion unless God’s Spirit continues to be heard and obeyed. Jesus’ interview with Caiaphas reminds us that no church can put itself between people and God. We must choose God’s will every day, even if it contrasts with our traditions and desires. Otherwise we cannot be God’s disciples.
+
+The Cross reminds us that staying true to God is not easy. Every day we must fall on our knees, asking God: “What do you want me to do?” – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+A Reason to Believe
+===================
+
+*Do not let your hearts be troubled. You believe in God; believe also in me.* - John 14:1, NIV
+
+Our Lord Jesus was not a pessimist. He was, however, a perfect realist. He said that in the last days, people’s hearts would fail them for fear. He said there will be a time of trouble such as never was, a tribulation so intense that unless God shortened the days, no flesh would be saved. (See Luke 21:26; Matthew 24:21-22 KJV.)
+ 
+Jesus was a realist. Christians must be, too.
+
+The word “believe” is found approximately 100 times in this single book, the Gospel of John. Almost every one of the 21 chapters in John has the word “believe.” 
+
+Let not your hearts be troubled. It’s true there are troubles around us. It’s true there is death on the highway. It’s true there is tragedy in the home. It’s true there’s alcoholism and crime and political corruption-and religious scandals, too. It’s all true. But, “Let not your hearts be troubled.”
+
+Jesus says,
+
+    *"I have told you these things, so that in me you may have peace. In this world you will have trouble. But take heart! I have overcome the world."* John 16:33
+
+Our hearts will be troubled and they will be afraid if we let them. But if we look at what we have in Christ, our hearts need not be troubled even in this trouble-filled world.  In the world, trouble. In Christ, peace. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+What to Do with Worry
+=====================
+
+*You will keep him in perfect peace, whose mind is stayed on You, because he trusts in You.* - Isaiah 26:3, NKJV
+
+When we’re threatened with worry the first thing we need to remember is God himself. When we really believe that God loves us – that he intends our good – then we will stop worrying so much. We will trust God as a child trusts a loving parent. Our torments will disappear, for our wills will be swallowed up in the will of God.
+
+Isaiah 26:3 can be translated this way: “You will keep him in perfect peace whose mind stops at you, oh God.” God lives in the future as well as the present. Nothing ever takes him by surprise.
+
+He attends the funeral of every sparrow. He counts the hairs of our head. Can we not let our minds stop at God? He keeps him in perfect peace whose mind stops at God.
+
+The person to whom eternity is real is the person who finds it easiest to live in the present moment (2 Cor 4:16–18). When God is real to us and when God is near to us, we will trust him with both past and future. Those who see the invisible – they alone can do the impossible.
+
+However worried you are at this moment, God is bending over you in love. Trust him. Blessed is he whose mind stops at God. – Des Ford
 
 
 Back to top of: :ref:`df-ShouldWeLive`
@@ -4245,6 +4618,134 @@ That is the only recipe for all of life's problems: to trust and obey Jesus. Tha
 Obedience without trust is useless. God rejects obedience without feeling, obedience without conviction in his goodness and unfailing love. But God is never more pleased than when you and I look around the universe and God seems to be dead, and the angels only a myth, and heaven just part of folklore, but still you choose to do what is right.
 
 God asks that you have faith, and faith isn’t a feeling. **Faith is a choice**, and so God tells you how to choose. God tells you to trust and obey, and so do whatever he tells you to do. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Faith is the Channel of Blessing
+================================
+
+*To the one who does not work but trusts God who justifies the ungodly, their faith is credited as righteousness.* - Romans 4:5, NIV
+
+Faith is the gospel’s chosen vehicle because faith has no virtue in itself. Faith gives all the credit to God. That’s because the moment we forget that we are paupers, on a pension from heaven, we’re in danger.
+
+It is important to understand that faith must never be considered as the cause of our being reckoned right with God but only the channel through which the blessing comes.
+
+Otherwise, we have made faith into a work; whereas, in truth, it is nothing but the empty hand that accepts the gift. God could only have all the glory for his gracious work of redemption if man’s part remained that of the beggar accepting the divine gifts. Faith itself is a gift bestowed on all who hear the gospel, unless they oppose and reject the Good News.
+
+See the glory of the description of God that is found in Romans 4:5. He is called the One “who justifies the ungodly.” What a title! What wonderful encouragement for every sinner! In the Old Testament law, judges were forbidden to justify the ungodly. (See Deuteronomy 25:1.) 
+
+But God breaks all human customs and traditions by his infinite mercy and declares the penitent sinner to be righteous because he or she has embraced the Saviour and thus becomes covered with his mantle of merit. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Receive Through Faith
+=========================
+
+*Abram believed the Lord, and he credited it to him as righteousness.* - Genesis 15:6, NIV
+
+Genesis 15:6 says that, “Abram believed the Lord.” That means Abraham trusted God. He laid hold of God. “And he [the Lord] credited it to him as righteousness.”
+
+Abraham’s belief, trust, laying hold of God was credited, reckoned, imputed, accounted and attributed to him for righteousness. Now, this is the same man who had lied to the Egyptian pharaoh that his wife, Sarah, was only his sister. This is Abraham, the great man of faith — whose faith occasionally balked and faltered.
+
+Do you see? God counts him righteous by faith alone, not by Abraham’s performance.
+
+True religion is not hymn-singing. It’s not even reading the Bible and praying. True religion is the union of our heart with God.
+
+That’s what faith does. You take hold of God. You bond with him.
+
+Faith is an empty hand. A child’s hand that takes a delicious apple doesn’t make the apple. It doesn’t deserve the apple. The child’s hand just takes the apple. That’s how faith is.
+
+Similarly, faith “takes” salvation. Salvation is something received, not something achieved.
+
+Paul is saying that “The Law of Moses (i.e. the Pentateuch) bears witness to this means of obtaining righteousness. Look how it worked for Abraham.”
+ 
+How did Abraham obtain righteousness?
+ 
+The answer is: by trusting and believing! By faith alone!” – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Are Saved by Faith Alone
+============================
+
+*But now apart from the law the righteousness of God has been made known, to which the Law and the Prophets testify.* - Romans 3:21, NIV
+
+Here’s the Acropolis of the New Testament. It’s the glorious temple of the New Testament. It’s found in Romans 3:21–25.  It tells us that:
+
+    *“There is no difference, for all have sinned and fall short of the glory of God, and are justified freely by his grace through the redemption that came by Christ Jesus. God presented him as a sacrifice of atonement, through faith in his blood... so as to be just and the one who justifies those who have faith in Jesus.* Romans 3:21-25 NIV
+ 
+The source of justification is the grace of God. The means of justification is the blood of Christ. The instrumental appropriation of justification is faith. The fruitage of justification is works.
+
+You are saved by faith alone. However, the faith that saves is never alone. You’re not saved by faith plus works, but by a faith that works. But the basis is grace, manifested in the blood of Christ.
+
+Karl Barth said, “**Religion is grace, and ethics is gratitude**.” That’s a great summary. Grace is simply a name for the outpouring love of God for the unlovely. Religion is grace. Every letter of Paul begins and ends with grace. The last word of the New Testament is grace:
+
+    *The grace of our Lord Jesus Christ be with you all* Revelation 22:21 KJV 
+
+– Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Faith and the Cross
+===================
+
+*It is by grace you have been saved, through faith — and this is not from yourselves, it is the gift of God.* - Ephesians 2:8, NIV
+
+Faith is not something you’ve got to self-generate. Faith is not something you develop. Faith is God’s gift as you learn that Christ loved you enough to die for you.
+
+If Calvary doesn’t melt and break the heart, there’s nothing else God can do.
+
+The Cross is the sun in the sky for the Christian. To take the Cross from the Christian would be like blotting out the sun. Kneeling at the foot of the Cross, Christians have reached the highest place they can attain.
+
+The Cross is the Sermon on the Mount enacted. It’s the Ten Commandments demonstrated. It’s 1 Corinthians 13 exemplified. The cross is the fruit of the Spirit in full blossom.
+
+At Calvary we see the almighty, pure, spotless, infinite One being made the offering of the universe for our sakes. When Jesus was on the Cross, we were all there. You can know the day of your death. It was two thousand years ago.
+
+    *One died for all, and therefore all died.* 2 Corinthians 5:14 NIV
+ 
+The verse **doesn’t** say, “If one died for all, all need not die.” It says, “All died.” **We died in him**. Therefore, you and I **have paid the penalty for all our sins, past, present, and future**. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Righteousness is by Faith
+=========================
+
+*For I am not ashamed of the Gospel... For in it the righteousness of God is revealed through faith for faith; as it is written, “He who through faith is righteous shall live”.* - Romans 1:16–17, RSV
+
+Paul says, “The just by faith shall live.” (That’s the way Romans 1:17 is probably best translated and is so in the RSV.) Remember, “just” is the same word as “righteous.”
+
+In some denominations, “righteousness by faith” has traditionally been understood to include two things: 
+
+    1) Being declared righteous (justification) and ...
+    
+    2) being **made** righteous (sanctification - our status or standing with God by faith in Christ and our condition before God; by condition we mean the Holy Spirit in the life, the doing of good works, and the developing of character)
+ 
+That, of course, is not the “righteousness by faith” of the New Testament. **Never, never, never**.
+
+In Paul’s discussion on acceptance and in his discussion on justification, “righteousness” and “faith,” “just” and “faith,” are linked together 13 times in 13 verses. They are **never** so linked in his discussion on *sanctification*. It is so important to understand that sanctification, or being made righteous, is the **fruit** of the gospel. It’s not the gospel. It’s the result of the gospel.
+
+The gospel is the good news about the death and resurrection of Christ. Through faith in Christ, his perfect righteousness is imputed to us, and God accepts us **now**. Sanctification — or working in cooperation with the Holy Spirit — is the fruit of the gospel. – Des Ford
+
 
 
 
