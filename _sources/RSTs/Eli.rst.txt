@@ -759,6 +759,27 @@ The phrase “his own love” means that this love is as elevated from all human
 That’s true love. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+No One Can Accuse You
+=====================
+
+*Who dares accuse us whom God has chosen for his own? No one—for God himself has given us right standing with himself. Who then will condemn us? No one.* - Romans 8:33–34, NLT
+
+All of us have things in our past that could be brought up to accuse us. Some of these might be things that are known publicly. Others might be things that no one knows about.
+
+Imagine if you could go to bed tonight, and wake up tomorrow knowing that nobody, anywhere, could accuse you of anything at all. Wouldn’t that be a wonderful feeling, the start of a brand-new life? You can. In fact, you can have that reality right now!
+
+Remember the story of the woman caught in the very act of adultery (John 8:1–11)? What she had done in secret was now her public shame! But that one act was only a tiny moment in a life that had been filled with broken dreams, loss, and betrayal.
+
+In that story, there were many who could accuse her, but not Jesus Christ. The Word of God exhausts the possibilities of human language to assure you that if you trust in Jesus, then no one – absolutely no one – will ever be able to accuse you.
+
+In Romans 8, Paul exhausts the possibilities of human language to tell you that in Christ, you are free, and no one can accuse you. You can have peace with God, peace with others, and peace within yourself. – Eliezer Gonzalez
+
+
 
 Back to top of: :ref:`eg-Forgiveness`
 
@@ -1333,6 +1354,138 @@ It’s interesting that the only sins that Jesus really ever called out were tho
 The sin we must stand up against the most is usually our own.
 
 Jesus spoke the words of John 3:17 to Nicodemus. Nicodemus was good at condemning. I’ve had too much of Nicodemus in me in my past, and not enough of Jesus. What about you? – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Will Fight for You
+======================
+
+*The Lord will fight for you, and you won’t have to do a thing.* - Exodus 14:14, CEV
+
+Moses said these words to the Children of Israel just before the crossing of the Red Sea (See also Ex 14:13).
+
+Moses represents Jesus Christ, the Children of Israel represent you and me, and the crossing of the Red Sea is a very powerful representation of salvation itself.
+
+The Bible emphasises that salvation can only be achieved when we are quiet and still, and when we let God do the work.
+
+Perhaps stillness is the most difficult attitude of faith to maintain. It can be the hardest thing in the world, when all of your instincts tell you to run or fight.
+
+It’s like that with salvation. God does the work; not us. And trusting him enough to let him do his work can be the greatest battle we will ever face. It’s the battle of surrender and faith.
+
+We do nothing for our salvation, but we have a lot to do with our salvation. The Bible refers to this as being "crucified with Christ." That's what the Cross teaches us (Romans 6:11).
+
+Salvation is easy, when you trust in Jesus. Believing in him is the only work that God requires of us so that we might be saved (John 6:29). – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Are a Steward of God’s Grace
+================================
+
+*Each of you should use whatever gift you have received to serve others, as faithful stewards of God’s grace in its various forms.* - 1 Peter 4:10, NIV
+
+In New Testament times, every wealthy household had a steward. This was the head servant, who was entrusted with everything that the master owned, to manage it for the good of the master. Today, we would call this person a “manager.” The key requirement for being a steward was that you were trustworthy. The Bible tells us that,
+
+    *It is required in stewards that one be found faithful.* 1 Corinthians 4:2, NKJV
+
+Most of us aspire to have an important position one day, whether in our careers, or our society, or even just in our families. But if we belong to Jesus, we’ve already been given the most important position of all. The apostle Peter tells us that we should serve...
+
+    *“...one another as good stewards of the manifold grace of God.”* 1 Peter 4:10, NASB
+
+God has entrusted you with the treasures of his grace. What are you doing with the grace God has given you? Have you let it flourish and grow and fill every part of your life? Have you shared it freely and generously with others?
+
+Have you spoken grace, lived grace, and been grace to those who need it? If so, then you are indeed a faithful steward of God’s grace. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Grace Means ...
+===============
+... **that It’s Not Where You Begin That Counts**
+
+*Although your former state was ordinary, your future will be extraordinary.* - Job 8:7, CEB
+
+What can you say to drug addicts and ex-convicts to give them hope, when they think they’ve come to the end and have no hope? I was faced with this dilemma recently when I spoke to a couple of dozen men in a drug rehab centre in Ukraine.
+
+A very wise man said something about this in the Bible:
+
+    *The end of a matter is better than its beginning.* Ecclesiastes 7:8
+
+And so I told them that it doesn’t matter how you begin; it matters how you end.
+What this is saying is that it doesn’t matter how you begin, how bad it might have been. What matters is what you make of it, how you end. The Bible is full of examples of how this is true. Consider the stories of Joseph, David, Zacchaeus, Mary Magdalene, and Paul. God’s endings for us are always better than our beginnings:
+
+    *Although your former state was ordinary, your future will be extraordinary.* Job 8:7, CEB
+
+(See also Haggai 2:9)
+
+How do you make sure that you end up well? By believing and trusting in what God has promised you, and allowing him to do what he wants to do with your life. It will always be something wonderful!
+
+Are you in a bad place right now? Have you been there for a while? Remember the Cross, and remember the resurrection. Remember: where you begin doesn’t count, only where you end up. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Kingdom’s Cure ...
+======================
+... **for Prejudice**
+
+*All of you are brothers and sisters.* - Matthew 23:8, CEB
+
+We live in a world that’s fragmented by prejudice. None of us really thinks that we’re prejudiced, but mostly we are.
+
+The Gospels can be easily seen as the story of how, at every turn, Jesus confronted, rebuked, and demolished prejudice both with his inclusive and redemptive teachings, and with his example.
+
+Jesus taught that there should be no hierarchical distinctions between us, because
+
+    *... all of you are brothers and sisters.* Matthew 23:8
+
+What can cure our prejudice? The Cross is the God’s cure for prejudice.
+
+(Ephesians 2:14–18; John 12:32)
+
+The Cross jolts us out of the false safety we seek in prejudice by showing us the darkest evil that is the ultimate result of prejudice. The Cross also shows us how prejudice is overcome with love.
+
+At the Cross, the only righteous one is Christ. The rest of us are the ones whose sins put him there. When we understand this, we realise that there are no second–class seats at the foot of the Cross. There’s kneeling room only.
+
+The Cross is God’s ultimate stand against prejudice. Like today, it seemed for a time that prejudice had won. But with Christ’s resurrection, the gates of heaven swung open to receive all who trust in him, without distinction. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+In the World ...
+================
+... **We Are Fools for Christ**
+
+*We are fools for Christ.* - 1 Corinthians 4:10, NIV
+
+Why does the Apostle Paul call himself a fool?
+
+In the ancient world, the fool was a standard character in the theatre. The fool was generally considered to be the “village idiot”.
+
+The fool is never seen to be the hero of the play, or a handsome or beautiful character, however, the fool has a very important role. Although everyone laughs at the fool, he or she is the only one who really knows what is going on. Most of the other characters are deluded. At the end, it is often the fool who is revealed to be the wisest of all the characters in the play.
+
+To be a fool for Christ means that what you believe is probably contrary to the conventional wisdom. It means that there are more people who will laugh at you than agree with you. You may even be mistreated.
+
+But to be a fool for Christ also means that at the end of the play that is called life, after all the plot twists have been revealed, everyone will agree that you were right after all.
+
+At some point or another, all of us are going to look foolish in some way or another, but the best kind of fool to be is a fool for Christ. – Eliezer Gonzalez
+
 
 
 Back to top of: :ref:`eg-Challenges`
@@ -2013,6 +2166,73 @@ It is the Father who is the greatest prodigal, in his love and forgiving mercy t
 Oh yes, this parable has the expansive, unbounded, extravagant love of the Father written all over it. It really is the Parable of the Prodigal Father. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Nothing Can Separate You ...
+============================
+... **from the Love of God**
+
+*I am convinced that neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor depth, nor anything else in all creation, will be able to separate us from the love of God that is in Christ Jesus our Lord.* - Romans 8:38,39, NIV
+
+Life is a journey, and we’re all travellers through this world. We’re all on a quest: the quest for love.
+
+Often our love will be betrayed. And even the very best kinds of love are only a pointer to the ultimate goal of our journey. We were made to be loved by God and to love him in return. The apostle Paul tells us that this experience is a present reality, whatever our current circumstances may be. The love of God is not the goal of the journey; it is in the journey itself.
+
+In Romans 8, the apostle Paul exhausts the limits of human language to assure us that absolutely nothing can separate us from the love of God. If Jesus didn’t abandon you at Calvary, how could he abandon you now?
+
+Where’s your journey brought you? Whether you’re in bed unable to get up to face the day, or curled up in the corner of a room on the floor, nothing can separate you from the God’s love.
+
+Refuse to listen to the voices that condemn and belittle you. Your feelings are liars. Only the assurance of God’s love is the truth. Believe it, and take the hand of God, and let your journey continue. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God is For You
+==============
+
+*For, behold, I am for you...* - Ezekiel 36:9, KJV
+
+The Bible is full of God’s assurances that he is for us, and not against us.
+I remember how I felt once when “my sins had found me out,” and I was racked with guilt and remorse. In my life, what keeps bringing me back to the reality of how God treats me is how Jesus treated those who felt themselves to be far from God, but who came to him in their need.
+
+God is always relentlessly and passionately for us (Mark 2:17). That's what Jesus came to tell us. So be encouraged!
+
+The very reason why Jesus was crucified was because he was for sinners, and not against them. Jesus shows us that God is truly like, because he himself is “Immanuel… God with us” (Matthew 1:26). It was necessary for God to come down to this earth and walk among us, so that we might truly believe that God is not against us, but that he is for us. As the Bible says,
+
+    *If God is for us, who can be against us?* Romans 8:31
+
+God is for you. That’s what Jesus came to tell us. Embrace this truth, because when you do, you are taking hold of the almighty hand of God that is reaching out for you. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+All the Power of Jesus’ Name ...
+================================
+... **is For You**
+
+*I will do whatever you ask in my name, so that the Father may be glorified in the Son.* - John 14:13, NIV
+
+In the ancient world, it was believed that the gods hid their true names from humanity. By using the true name of god in prayers and magical incantations, people believed that they could exert power over the god, to get him or her to do what you wanted. This background helps us to understand what the Bible says about the power of Jesus’ name.
+
+The Bible tells us that God has exalted his name to the highest place of all (Philippians 2:9–11). The name of Jesus is more powerful than any other name in the universe. Jesus has promised his children that anything that we ask in his name will be done.  (John 14:13; See also John 16:26-27).
+
+The marvellous thing is that although the names of power in antiquity were often hidden and mysterious, God has revealed the true name of power to his children.
+
+The angel said to Joseph,
+
+    *"She will give birth to a son, and you are to give him the name Jesus, because he will save his people from their sins."* Matthew 1:21
+
+There’s no magical power in the name of “Jesus”, but all the power of omnipotence belongs to the One who bears it. Through Jesus, all the treasures of heaven are at the disposal of God’s children. – Eliezer Gonzalez
+
 
 
 Back to top of: :ref:`eg-Reality`
@@ -2502,6 +2722,29 @@ These words are absolute. If you listen to the voice of Jesus, and follow him, y
 The great people of the Bible all went through dark and difficult times. Elijah, Isaiah, and John the Baptist all felt in different ways that their connection with God was gone, that they had been abandoned, and that they were failures.
 
 We must break the connection, in our minds, between our feelings and our salvation. Our assurance depends on God’s incredible, generous gift alone. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+I Am What I Am
+==============
+
+*By the grace of God I am what I am.* - 1 Corinthians 15:10, NIV
+
+What is it that makes Paul “Paul” and not “Saul”? It’s the grace of God.
+ 
+We all search for identity. In Philippians 3:7–8, after making a great list of all of the things that are normally considered assets in society, the apostle Paul says that he writes them all off as a loss in comparison to knowing Jesus. Paul refuses to be identified by the apparent advantages in his life. Paul also refuses to be identified by the tragedies in his life (2 Corinthians 11:23–27).
+
+The only response to the grace of God is to choose to become its servant. Paul’s first words in his epistle to the Romans are “Paul, a servant of the gospel”; literally: “a slave of the gospel.”
+
+Grace brings us all down to the same level, because at the foot of the Cross there’s no economy class, and no first class; there’s only kneeling class.
+
+Saul, a man of learning, privilege, and power, bent his knee in awe at the foot of the Cross. When he did that, he became Paul – a completely new person.
+
+You and I must also kneel at the foot of the Cross, to be able to say, “By the grace of God, I am what I am.” – Eliezer Gonzalez
 
 
 
