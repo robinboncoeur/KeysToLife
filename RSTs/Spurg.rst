@@ -147,6 +147,135 @@ Our wisdom is to look unto the Lord and not to quarrel with other people. If our
 Because God is the living God, He can hear; because He is a loving God, He will hear; because He is our covenant God, He has bound Himself to hear us. We can confidently call him "My God," and we can be absolutely certain that, "My God will hear me." So, when you are suffering, tell God about your sorrows! You can confidently say, "My God will hear me." – Charles Spurgeon
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God is in Control
+=================
+
+*The lot is cast into the lap, but its every decision is from the Lord.* - Proverbs 16:33, NKJV
+
+This text refers to how the people of old would cast lots (like throwing dice) to determine what to do. If the simple casting of a lot is guided by the Lord, how much more the events of our entire life?
+
+Our blessed Saviour tells us:
+
+    *“Are not two sparrows sold for a copper coin? And not one of them falls to the ground apart from your Father’s will. But the very hairs of your head are all numbered.”*
+    
+If you always remembered this, you would be free from anxiety, and you would be able to walk in patience, quiet, and cheerfulness.
+ 
+If you would “seek first the kingdom of God and his righteousness,” all things would then be given to you. When you fret and stress about your own circumstances, you are meddling with Christ’s business. You are trying to do the work of “providing” and you forget that your work is just to obey. Be wise and focus on the obeying, and let Christ manage the providing.
+ 
+Look at your heavenly Father’s heart of mercy; how could he ever be unkind! Look at his infinite wisdom; how could it ever fail? Your heavenly Father, who remembers even the sparrows, will never forget the least of his poor children. – Charles H. Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God is Your Father
+==================
+
+*You are all the children of God by faith in Christ Jesus.* - Galatians 3:26, KJV
+
+It is the privilege of all God’s children to call him Father. Perhaps you think you have little faith. Perhaps you want to be full of courage to face the challenges of life, but you stumble at every step, and even shadows make you afraid.
+
+You should think about this: the weakest Christian is as much a child of God as the strongest one. God, our heavenly Father, has the same tender heart towards all. One may do more mighty works, but the person whose name is the least in the kingdom of heaven is as much the child of God as the one who stands among the mightiest in the Kingdom of God. Let this truth encourage and comfort us, when we come to God and say, “Our Father.”’
+
+However, let us not be content with weak faith, but ask, like the Apostles, to have it increased. However weak our faith may be, if it is real faith in Christ, we will reach heaven at last. However, a stronger faith will bring more honour to our Master, and we will be filled with greater joy and peace.
+
+If it is your desire to live for Christ’s glory, then seek to be filled with the spirit of adoption more and more completely. The Spirit of God will cast out fear. –  Charles H. Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Will Lead You ...
+=====================
+... **on the Right Path**
+
+*He led them forth by the right path.* - Psalm 107:7, NKJV
+
+The ups and downs of our lives mean that believers sometimes ask, “Why do these things keep happening to me?”
+
+The ups and downs of your faith, the fainting of your hope, all these things are really just God’s method of making you ready for the great inheritance which you will soon receive. The purpose of these trials is for the testing and strengthening of your faith. They are waves that wash you further upon the rock; they are winds that send your ship  more swiftly towards your desired haven (Psalm 107:30).
+
+The health of your soul is maintained through honour and dishonour, by the evil things that are said of you and by the good, by plenty and by poverty, by joy and by distress, by persecution and by peace.
+
+Don’t think, believer, that your troubles are outside of God’s plan. They are necessary parts of it. “We must, through much tribulation, enter the kingdom.” We must learn to understand our troubles in the right way, and to “count it all joy when you fall into various trials.”
+
+Let your trembling soul be still. Even though we may not always see God’s purpose, believe that all will be well, because all is ruled by him. – Charles H. Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Wait for the Gates ...
+======================
+... **of Heaven to Open**
+
+*All the days of my appointed time will I wait.* - Job 14:14, KJV
+
+A little stay on earth will make heaven more heavenly. Nothing makes rest so sweet as work; nothing makes safety so pleasant as exposure to danger. Jesus was baptised with a baptism of suffering among humanity, and we must be baptised with the same if we would share his kingdom. The honour of fellowship with Christ is so great, that the greatest sorrow is a light thing to go through in order to have it.
+
+Another reason why we wait here on earth is for the good of others. Our work is not yet done. We are called to give light to souls who wander in darkness in the wilderness of sin. Our wait here is also for God’s glory. A saint who has been tried, like a well-cut diamond, glitters brightly in the King’s crown. We are God’s workmanship, in whom he will be glorified by our afflictions.
+
+It is for the honour of Jesus that we endure the trial of our faith with sacred joy. Let each person surrender his own desires to the glory of Jesus. Our time here on earth is fixed and decided by God. Let us not be anxious about it, but wait with patience till the gates of pearl shall open. – Charles H. Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God is For Us
+=============
+
+*When I cry out to You, Then my enemies will turn back; this I know; for God is for me.* - Psalm 56:9, NKJV
+
+It is impossible for any human speech to express the full meaning of this wonderful phrase, “God is for me.” He was “for us” before the worlds were made. He was “for us” when we were ruined in the fall—he loved us despite it all; he was “for us,” when we were rebels against him. He was “for us,” or he would not have given his beloved Son.
+
+He has been “for us” in our many struggles, whether dangers or temptations. Where would we be today if he had not been “for us”? He is “for us,” with all the infinity of his being; with all the omnipotence of his love; with all the infallibility of his wisdom.
+
+Because he is “for us,” when we pray, he will always help. This is not some vague hope, but a well-grounded assurance— the Psalmist says “this I know.”
+
+He is “for us,” — eternally and irrevocably “for us”. If you have such a God, then how happy you are with the King of Kings on your side! How safe with such a Protector! How overwhelmingly will your cause be pled by such an Advocate! If God be for you, who can be against you? – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Where Your Great Strength Lies
+==============================
+
+*Tell me where your great strength lies.* - Judges 16:6, NKJV
+
+Where lies the secret strength of faith? It lies in what it feeds on; for faith focuses on the source of the promises of God – an overflowing of divine grace from the great heart of God.
+
+Faith doesn’t consider the size of the promise, for all of God’s promises are great. Instead, faith asks, “Who is its author?” Faith remembers that it is God, who cannot lie. As a result, faith is able to move forward with conviction.
+
+Faith remembers why God’s promises are given, for God’s glory, and because of his love and grace. Faith looks at the amazing work of Christ as clear proof of the Father’s intention to fulfil his word:
+
+    *He who did not spare His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?* Romans 8:32
+ 
+Faith also looks back on the past, and her past victories give her courage. She remembers that God never has failed her, and that he has never failed any of his children. (See 1 Samuel 7:12, NKJV). Because of this faith can say with confidence,
+
+    *Surely goodness and mercy shall follow me all the days of my life* Psalm 23:6
+ 
+– Charles Spurgeon
+
+
+
+
+
 
 
 
