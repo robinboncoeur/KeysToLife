@@ -549,6 +549,52 @@ Not only did Christ die for us as our Substitute, but we died with him who was o
 That’s why it’s our great privilege to know that paradise is ours this very day. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus’ First Miracle ...
+========================
+... **Was Important! Why?**
+ 
+*When the master of ceremonies tasted the water that was now wine, not knowing where it had come from... he called the bridegroom over. “A host always serves the best wine first,” he said. “But you have kept the best until now!”* - John 2:9,10, NLT
+ 
+Moses was referring to Christ when he predicted that God would raise up another prophet like him. (Deuteronomy 18:15.)
+
+Like Moses, Christ left the palace to redeem his people; like Moses, he controlled the waters of the sea and multiplied food for the people; like Moses he was willing to be blotted out for the sins of his people.
+
+However, Christ teaches us much more clearly about the Gospel. Moses taught law; our Lord Jesus taught the Gospel.
+
+That’s why we must notice the contrast between Christ’s first miracle and Moses’ first miracle. Moses' first miracle was turning water into blood, which brings death. It tells us that the law leads to condemnation. Our conscience never gives any assurance.
+
+The first miracle of the Son of God is an obvious contrast with Moses’ first miracle. Christ turns water to wine in overflowing abundance and brings rejoicing. It represents the blood of the new covenant, that brings life.
+
+Moses had to die before the people got to enter the promised land. The law can’t take us in. Moses never took them into the promised land; Joshua took them in. The name Joshua is the same name as Jesus. Only the Gospel of Jesus can take us to the promised land. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Grace of the Gospel ...
+===========================
+... **Carries You**
+ 
+*Fruit trees of all kinds will grow on both banks of the river. Their leaves will not wither, nor will their fruit fail. Every month they will bear fruit, because the water from the sanctuary flows to them. Their fruit will serve for food and their leaves for healing.* - Ezekiel 47:12, NIV
+
+The Gospel is like that mighty stream that is pictured in Ezekiel. It originates as a trickle from the temple, first a few inches deep, just up to the ankle, then up to the knee, the thigh, and then, finally, it forms mighty rivers to swim in!
+
+In the same way, true religion is not something we carry. True religion is something that carries us. The religion of Moses became a yoke of bondage when the Jews forgot the meaning of the symbols and the prophecies and the types. When the Jews saw these things externally only, as a means of finding heaven, they all became a yoke of bondage (2 Corinthians 3:15–18).
+
+When we turn to the Lord, we suddenly see how those Old Testament laws, types, symbols, prophecies and sacrifices, all point us to the Saviour. The law is a school master to bring us to Christ (Galatians 3:24). When we come to Christ and he writes the law in our hearts, we will want to do what is right.
+
+It is only out of gratitude: the only obedience God will accept is the obedience of gratitude. He will not accept any other. Whatever is not of faith is sin (Rom 4:23). – Des Ford
+
+
+
+
 
 
 Back to top of: :ref:`df-GospelMessage`
@@ -924,6 +970,24 @@ God loved first, says Scripture, and not the other way round (1 John 4:19). He d
  
 If Christ hadn’t died for his enemies, he would never have had the love of his friends. In the Old Testament, only one person was ever called a friend of God, and that's Abraham. But under the New Covenant we are all friends of God. Every Christian is closer to God than Abraham, or even Moses when he spoke with God in front of the Tabernacle. – Des Ford
 
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God is Interested in You
+========================
+
+*Casting all your care upon Him, for He cares for you.* - 1 Peter 5:7, NIV
+
+The story of the wedding at Cana tells us that God is interested in us. Jesus did not work this miracle in a great public display at the temple at Jerusalem, but at the home of an unknown family. We are not even told the names of the bride and the bridegroom. They lived in a tiny village, not even in Judea, but in Galilee where there were some Jews, but mainly Gentiles.
+
+Jesus begins his ministry with a great sign that tells us that he has come to transform everything. He does it for an unknown couple, peasants in a small village. The story is meant to tell us that God is very interested in ordinary people. Abraham Lincoln was right when he said, “God must have loved the common people: he made so many of them.
+
+What does the miracle mean? God is interested in you. Here is a beautiful verse: "Casting all your care upon him" (1 Peter 5:7). Notice what it says: “all”.
+
+I wish this could be done once and then last forever. Usually I have to cast my care upon God again and again. But you can trust God that he cares for you. He cares for the common people. God changes what is plain in your life into something special. Only God can change your water into wine. – Des Ford
 
 
 
@@ -1412,6 +1476,73 @@ Morality always goes hand in hand with true religion, but you can have a lot of 
 There aren't any people with an unbroken record. Anyone who thinks they are heading that way is so full of pride that they've ruined their record more than someone who has done something overtly wrong. Remember that in the New Testament scale of values, pride and selfishness are much worse sins than the "sins of the flesh". That's why Jesus said to the Pharisees that prostitutes would go into the kingdom of heaven before them.
 
 The essence of true religion is this: we deserve death, but someone else took our place; we deserve to be excluded from the kingdom of God, but there is One who loved us so much that he took the punishment that was due to us. That's the essence of true religion. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Find Grace Everywhere
+=========================
+
+*Oh, how can I give you up, Israel? ... My heart is torn within me, and my compassion overflows.* - Hosea 11:8, NLT
+
+The minor prophets are the “forgotten books” of the Bible, yet you will find that even they are filled with the grace of God.
+
+Let me give you their message in a nutshell. It consists of judgment and salvation, of controversy and consolation, of condemnation and comfort. Every message of rebuke in the minor prophets comes with a promise of forgiveness. The mercy of God is the great theme in the writings of each of the minor prophets, just as it is in the New Testament and all the rest of Scripture. Because of our sins, judgment comes. But God intends it to turn our faces from this world to heaven, so we can find supreme good.
+
+To whet your appetite, here are some of the verses from the minor prophets that most resonate with my heart. I pray that they will inspire you as well: Hosea 2:14-15,19,20; 6:6; 11:1,3,48,9; 14:4. Micah 6:36-8;7:8,18-19.
+
+Meditate on the fact that the books ofthe minor prophets begin with a love story in Hosea chapters 1-3, and then the message of the last book (Malachi) begins with the words "I have loved you" (Malachi 1:2).
+
+Love is always the essence of God's message to humanity, even in the forgotten books of the Bible. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+How Hosea Teaches Us ...
+========================
+... **About Grace**
+
+*Oh, how can I give you up, Israel? How can I let you go? ... My heart is torn within me, and my compassion overflows.* - Hosea 11:8, NLT
+
+The prophet Hosea didn't marry someone who had a right to wear a white dress. He didn't marry someone who was a virgin. When God accepts us in the beginning, he accepts us as sinners. That's how we have to come to him.
+If you don’t come to God as a sinner, you can't come to him at all. Grace is for the graceless. The Gospel is for the unworthy.
+
+God justifies the ungodly (Romans 4:5). We would expect God to justify the godly but that not the way it is. He is a God who justifies the ungodly. You haven't got a hope unless you've got no hope. You haven't got a right to his mercy unless you can claim no rights. He cannot make you righteous unless you know you are not.
+After you have received rest and peace, Christ works in you. God changes the things that you love. That’s grace too.
+
+What you love most is the most important thing of all, because that determines everything else. When God comes into your life he changes your “loves”, so that you can love him above all else. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+What is Grace?
+==============
+
+*But if it is by grace, it is no longer on the basis of works, otherwise grace is no longer grace.* - Romans 11:6, NASB
+
+Grace is mentioned about 130 times in the New Testament alone. Paul begins and ends each of his epistles with it. It turned the western world upside down in the sixteenth century. We call that event the Reformation.
+
+Grace gives hope to the hopeless, joy to the sorrowing, faith to the faithless, and life to the dying. The word charis (“grace”) comes from a root meaning "to be joyful," and the word is always associated with happiness and joy.
+
+Grace means that God is for us even when we are against him. Grace refers to the active love of God streaming continually and generously as sunshine from the sun. Augustine said it is not grace unless it is gratis, that is free. The word “grace” carries the meaning of generous gifts which have to do with redemption and all that goes with it.
+
+Grace is a word set in contrast to law, works, and human merit (Romans 11:6). However, it is only when you understand that grace is essentially for the graceless that you can taste its sweetness (John 3:17–17; John 15:2; Matt 12:31; John 6:37).
+There could have been no grace whatsoever for us, if it were no for the fact that the Son of God volunteered to take our place and redeem us:
+
+    *Grace... came through Jesus Christ.* John 1:17
+    
+- Des Ford
+
+
 
 
 Back to top of: :ref:`df-ForByGrace`
@@ -2324,6 +2455,27 @@ When Christ approached the cross he owned one thing of value, a tunic probably w
 This is a wonderful symbol of how Jesus imputes his robe of righteousness to us. He gave his robe to those responsible for his death, so he was poor for our sakes. He did not even own a loin cloth, so his proverty was absolute; that "you through his poverty might become rich."
 
 He even gave up life itself for us. Many of us are prepared to give up things, but give up life? That's something else! But Jesus gave up even life itself that we through his poverty might be rich. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus Bore Your Sin
+===================
+
+*And so Jesus also suffered outside the city gate to make the people holy through his own blood.* - Hebrews 13:12, NIV
+
+Jesus was crucified, outside the city gate. That's where the garbage was. Lepers were considered garbage, to that’s where they were, too.
+
+The Bible says you and I are spiritual lepers. We have a disease from which we are not going to recover in this life entirely. It's in the blood, so to speak. We're lepers, but Jesus was treated as we deserve that we might be treated as he deserves. Upon him was laid the punishment that makes us whole and gives us peace. With his stripes we are healed.
+
+Jesus took your condemnation and gave you his perfect life. He took your agony and gave you his victory. He took your wounds and gave you his healing. He took your death and gave you his life. He took your crown of thorns and gave you a crown of glory.
+
+How sweet it is to hear this news! You need to say this, “I am a sinner, I have sinned, I am still sinning, I will sin in the future; but Jesus has taken the guilt of my past, my present and my future sin. Because he has borne my sin, I do not need to. I am no longer guilty.”
+
+There is no need for your soul to be oppressed by guilt, to feel weighed down and burdened by mistakes. – Des Ford
 
 
 Back to top of: :ref:`df-ChristOurSalvation`
@@ -3379,6 +3531,57 @@ True religion is not a matter of shibboleths and sacred cows. It is not a matter
 True religion is the overflow of the union of your heart with the loving heart of God, into every one of your relationships. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Avoid a “Crumby” Life
+=====================
+
+*He also saw a poor widow put in two very small copper coins. “Truly I tell you,” he said, “this poor widow has put in more than all the others. All these people gave their gifts out of their wealth; but she out of her poverty put in all she had to live on.”* - Luke 21:2–4, NIV
+
+In Luke 16, Jesus told a story about a very wealthy man who lived and feasted like a king every day. He permitted a beggar named Lazarus at his front gate to consume the crumbs from his table. Eventually both men died.
+
+Clovis G. Chappell said, about this story:
+
+    *Thus given only the crumbs, we are not surprised to read that the beggar died. Institutions, causes, men: all these die when we neglect them or feed them only upon crumbs. But they are not the only ones who die: “The rich man also died.” Crumbs have a way of killing him who gives as well as him who receives.*
+
+God measures our gifts by what we have kept for ourselves, and not by what we have given. When a penniless widow surrendered two small copper coins, Jesus said that she had given more than the wealthy had given.
+
+Christ told us that whoever seeks to save his life will lose it. When we fail to give, we die a little every day.
+
+We must contemplate Jesus, in his living and in his dying, so that our selfish natures may dwindle as we become more like him (John 3:20). When we do that, we will experience a flood of joy, assurance and love, and we will no longer live the “crumby” way! – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The [ All ] Texts of the Kingdom
+================================
+
+*My God shall supply all your need according to His riches in glory by Christ Jesus.* - Philippians 4:19, NIV
+
+There is a word that is found in the last verse of the Bible, that is also found all the way through Scripture. It is the word: “all”. For example,
+
+    *My God shall supply* **ALL** *your needs through his riches and glory by Christ Jesus.* Philippians 4:19
+
+Jesus said,
+
+    *"Do not worry, saying, ‘What shall we eat?’ or ‘What shall we drink?’ or ‘What shall we wear?’ For the pagans run after all these things, and your heavenly Father knows that you need them. But seek first his kingdom and his righteousness, and* **ALL** *these things will be given to you as well.* Matthew 6:31–33, NIV
+
+Here are some other “all” texts: Ephesians 6:16; Romans 8:32; Matthew 12:31; Romans 11:36; 2 Corinthians 4:15; 2 Timothy 3:11.
+
+When you are feeling discouraged, here is a good one to remember:
+
+    *The Lord is not slack concerning His promise, as some count slackness, but is longsuffering toward us, not willing that any should perish but that* **ALL** *should come to repentance.* 2 Peter 3:9, NKJV
+
+Remember that it’s **easier to be saved than to be lost**. The Spirit of God pleads with us, keeps us awake at night, and even allows trouble to come our way, so that we might acknowledge our need of him and seek Him. – Des Ford
+
+
+
 
 
 Back to top of: :ref:`df-ShouldWeLive`
@@ -3993,6 +4196,55 @@ We have not started to live until we know these things.
 We will not be motivated to choose good and turn away from evil unless we know today, this hour, this moment, that God accepts us just as we are, warts and all, with all our mistakes, fumblings, and stumblings. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+You Can Go to the King ...
+==========================
+... **Without Fear**
+
+*I will go to the king, even though it is against the law. And if I perish, I perish.* - Esther 4:16, NIV
+
+Remember the story of Esther. You couldn’t go to the king unless you were called in. That was the law. To save her people, Esther made a decision to go before the king, even if it meant her own life.
+
+God’s law of holiness requires us to be like him in character. It is a law that requires flawless and fervent obedience, not only in our actions but in every aspect of our thought and life.
+
+The Bible says,
+
+    *Whoever keeps the whole law and offends in one point is guilty of all.* James 2:10
+    
+If you leave me in a room and say, “Des, there at 10 exits here. Stay in this room.” If I say to myself, “Well, I won't go out of nine of the exits; I will just go out of one of them", I've blown it, I've disobeyed you.
+
+God requires an obedience that is flawless, that is perpetual, consistent, joyous, and fervent and I can't live up to that. I am a broken, fallen creature. My natural tendencies are downward, not upward. I cannot do anything good  without Him.
+
+And so, how can I go into the king? Do you remember what the king did to Esther? He held out the sceptre. That is what our king does to us. He holds out the sceptre of grace for Christ's sake. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+Mary’s Kingdom Secret
+=====================
+
+*Whatever He says to you, do it.* - John 2:5, NKJV
+
+The wine had run out at the wedding feast at Cana, and Mary, Jesus’ mother, knew that Jesus could provide more wine. However, she wasn’t discouraged when Jesus said to her,
+
+    *"Dear woman, that’s not our problem ... My time has not yet come."* v.4, NLT
+ 
+The reason why she wasn’t discouraged was because she knew the secret to life’s confusions and problems. She said to the servants at the wedding,
+ 
+    *"Do whatever he tells you..."* v.5, NIV
+
+That is the only recipe for all of life's problems: to trust and obey Jesus. That is also the right order: first you trust, and then you obey.
+
+Obedience without trust is useless. God rejects obedience without feeling, obedience without conviction in his goodness and unfailing love. But God is never more pleased than when you and I look around the universe and God seems to be dead, and the angels only a myth, and heaven just part of folklore, but still you choose to do what is right.
+
+God asks that you have faith, and faith isn’t a feeling. **Faith is a choice**, and so God tells you how to choose. God tells you to trust and obey, and so do whatever he tells you to do. – Des Ford
 
 
 

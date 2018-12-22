@@ -89,3 +89,23 @@ The most natural explanation of Christ is the supernatural. If he was good, he w
 One wrong word or act would have destroyed Christ’s claims to be God, but **there was none**. - Des Ford, with C.S. Lewis
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Grace of the Lord Jesus is With You
+=======================================
+*The grace of our Lord Jesus Christ be with you all. Amen.* - Revelation 22:21, NKJV
+
+The Bible closes with this blessing. It is a summary of all of the blessings that God has promised us. Grace abounding! Divine favor, unbought, unsolicited, and undeserved! The Bible begins and ends with this.
+
+This is the 'good news' which the Cross of Christ has made available; the 'good news' which remains 'good' to the last, unchanged by the lapse of time. The free love of God, coming to us through His Son, has not been exhausted.
+
+This grace has been shown to us in many ways, but mainly in the Cross. The Cross did not originate grace, but it made it a righteous thing for us to receive.
+When Jesus said "it is finished" as he died on the Cross, he broke down the barriers that stood between the sinner and the grace. This grace flows everywhere throughout a guilty earth; but its centre is the Cross; and only in connection with the Cross is it available to us.
+
+We accept this grace simply by taking it as it is, and as we are; by letting it flow into us; by believing what God says about it. Grace does not ask us to prepare to receive it, in fact we must be worthless and guilty. If we needed to be anything else before receiving it, grace would be not grace. – Horatius Bonar
+
+
+

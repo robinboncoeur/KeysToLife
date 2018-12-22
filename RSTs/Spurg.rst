@@ -410,3 +410,49 @@ Our love to our Lord Jesus Christ is an effect produced by a great cause, namely
 The heart that does not feel moved whenever the love of Christ is proclaimed must be a hard heart indeed. Yet we must not try to make ourselves love our Lord, but look to Christ's love first, for his love will create in us love towards him.
 
 If you are distressed because you cannot love Christ as much as you would like to, then just forget your own love to him, and focus on his great love to you. The more you do this, the more your love will transform into what you desire it to be. - Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Will Be Satisfied ...
+=========================
+... **by God’s Grace**
+
+*They are abundantly satisfied with the fullness of Your house, And You give them drink from the river of Your pleasures.* - Psalm 36:8, NKJV
+
+When the Queen of Sheba visited Solomon, she was astonished when she saw the food and the generosity that was shown to welcome her. But even this cannot be compared to the generosity of the grace of God!
+
+Millions of God’s people are fed daily by his grace. Everyone comes hungry and thirsty, but no one leaves unsatisfied. There is enough of the grace of God for you, enough for all, and enough for ever. The Lord spreads his table, not for one, but many saints, not for one day, but for many years; not for many years only, but for generation after generation.
+
+The text tells us that the guests at mercy’s banquet are even more than just “satisfied”; they are “abundantly satisfied.” This feasting is guaranteed by God’s faithful promise to every person who puts their trust in God.
+
+I once thought that if I could only get the left-overs at God’s back door of grace I would be satisfied; like the woman who said, “The dogs eat of the crumbs that fall from the master’s table.” But no child of God is ever served with scraps and left-overs. Like Mephibosheth, they all eat from the king’s own table: such is the marvellous abundance of grace which God gives us to enjoy. – Charles H. Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Must Pass Through Tribulation ...
+=====================================
+... **to Enter the Kingdom of God**
+
+*We must through much tribulation enter into the kingdom of God.* - Acts 14:22, KJV
+
+Trials are a part of our lot in life. If we are Christ’s heirs, then he left trials to us in his legacy. So surely as the stars are fashioned by his hands, and their orbits fixed by him, so surely are our trials given to us.
+
+Followers of Jesus must never expect to escape troubles. If they do, they will be disappointed, for none of their predecessors have been without them. Read the biographies of all the patriarchs, prophets, apostles, and martyrs, and you will discover that everyone to whom God showed his mercy were made to pass through the fire of affliction.
+
+In ancient times, a royal mark was placed on all the treasures that belonged to the king. The royal mark of the Cross distinguishes with honour all those who have received God’s mercy.
+
+Although God’s children must walk through the path of tribulation, they have the comfort of knowing that their Master has walked this path before them. They have his presence and kindness to cheer them, his grace to support them, and his example to teach them how to endure.
+
+When you have finally reached “the kingdom,” it will more than make amends for the “much tribulation” through which you passed to enter it. – Charles H. Spurgeon
+
+
+
+
