@@ -9,6 +9,7 @@ The Nature of God
 
 Never Be Cast Out
 =================
+
 *Whoever comes to me I will never cast out.* – John 6:37, ESV.
  
 Is there any instance of our Lord's casting out one who came to him? If there be so, we would like to know of it; but there has been none, and there never will be. Among the lost souls in hell there is not one that can say, "I went to Jesus, and He refused me." It is not possible that you or I should be the first to whom Jesus shall break His word. Let us not entertain so dark a suspicion.
@@ -25,6 +26,7 @@ Suppose we go to Jesus now about the evils of today. Oh, this we may be sure—H
 
 God Freely Gives
 ================
+
 *He that spared not His own Son, but delivered Him up for us all, how shall He not with Him also freely give us all things?* - Romans 8:32
  
 If this is not a promise in form, it is in fact. Indeed, it is more than one promise, it is a conglomerate of promises. It is a mass of rubies, and emeralds, and diamonds, with a nugget of gold for their setting.
@@ -43,6 +45,7 @@ He freely gave His Only-begotten, and, O my soul, can you not trust your heavenl
 
 The Son Shed His Blood For You
 ==============================
+
 *When I see the blood, I will pass over you.* - Exodus 12:13
 
 Even when I am unable to behold it, the Lord looks at the previous blood and passes over me because of it. If I am not so much at ease as I ought to be, because my faith is dim, yet I am equally safe because the Lord's eye is not dim, and He sees the blood of the great Sacrifice with steady gaze. What a joy is this!
@@ -61,6 +64,7 @@ Now rest we in calm security. We have God's sacrifice and God's Word to create i
 
 The Messiah Was Cut Off For You
 ===============================
+
 *The Messiah shall be cut off, but not for Himself.* - Daniel 9:26
 
 Rivers of tears, mountains of offerings, seas of bullocks' blood, and hills of frankincense, could not have availed for the removal of sin; but Jesus was cut off for us, and ... sin was put away forever. Herein is wisdom, whereby substitution, the sure and speedy way of atonement, was devised! Herein is condescension, which brought Messiah, the Prince, to wear a crown of thorns, and die upon the Cross! Herein is love, which led the Redeemer to lay down His life for His enemies!
@@ -77,6 +81,7 @@ Solemn as the question is ... it is one that may be answered clearly and without
 
 You Are Perfectly Saved
 =======================
+
 *God ... has saved us and called us with a holy calling, not according to our works, but according to His own purpose and grace which was given to us in Christ Jesus before time began.* - 2 Timothy 1:9, NKJV
 
 The apostle uses the perfect tense, meaning that this has already happened: "Who has saved us." Believers in Christ Jesus are saved. They are not looked upon as persons who are in a hopeful state, and may ultimately be saved, but they are already saved.
@@ -93,8 +98,8 @@ Salvation must be of grace, because the Lord is the author of it: and what motiv
     :width: 200px
 
 
-We are Joint Heirs ...
-======================
+We are Joint Heirs...
+=====================
 ... **With Christ in His Kingdom**
 
 *... joint heirs with Christ.* - Romans 8:17
@@ -119,6 +124,7 @@ The smiles of His Father are all the sweeter to Him, because His people share th
 
 Jesus Intercedes For Us
 =======================
+
 *I have prayed for you.* - Luke 22:32
  
 How encouraging is the thought of the Redeemer's never-ceasing intercession for us. When we pray, he pleads for us; and when we are not praying, he is advocating our cause, and by his supplications shielding us from unseen dangers. Notice the word of comfort addressed to Peter: "Simon, Simon, Satan wants to have you so he may sift you as wheat; but I have prayed for you, that your faith fail not."
@@ -145,6 +151,25 @@ Friends may be unfaithful, but the Lord will not turn away from anyone who comes
 Our wisdom is to look unto the Lord and not to quarrel with other people. If our loving appeals are disregarded by our relatives, let us wait upon the God of our salvation, for He will hear us. He will hear us all the more because of the unkindness and oppression of others, and we shall soon have reason to cry, "Rejoice not against me, O mine enemy!"
  
 Because God is the living God, He can hear; because He is a loving God, He will hear; because He is our covenant God, He has bound Himself to hear us. We can confidently call him "My God," and we can be absolutely certain that, "My God will hear me." So, when you are suffering, tell God about your sorrows! You can confidently say, "My God will hear me." – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Hears Your Faintest Call
+============================
+
+*And it shall come to pass, that whosoever shall call on the name of the Lord shall be delivered.* - Joel 2:32, KJV
+
+Why do I not call on His name? Why do I run to my neighbour, when God is so near and will hear my faintest call? Why do I sit down and devise schemes and invent plans instead of taking myself and my burden to the Lord? Wouldn’t it be better to go straight to the living God? I will not find deliverance anywhere else; but with God I shall find it; for he is certain to help me.
+
+I need not ask whether I may call on Him or not, for that word “whosoever” is a very wide and comprehensive one. ‘Whosoever’ means me, for it means anybody and everybody who calls upon God. I will therefore follow the leading of the text and at once call upon the glorious Lord who had made so large a promise.
+
+My case is urgent, and I do not see how I am to be delivered; but this is no problem. God, who makes this promise, will find out ways and means of keeping it. I must simply obey His commands; I cannot tell God what to do. 
+
+I am His servant, not His lawyer. I call upon Him, and He will deliver me. – Charles Spurgeon
 
 
 .. image:: ../images/Flourish02.png
@@ -194,8 +219,8 @@ If it is your desire to live for Christ’s glory, then seek to be filled with t
     :width: 200px
 
 
-God Will Lead You ...
-=====================
+God Will Lead You...
+====================
 ... **on the Right Path**
 
 *He led them forth by the right path.* - Psalm 107:7, NKJV
@@ -216,8 +241,8 @@ Let your trembling soul be still. Even though we may not always see God’s purp
     :width: 200px
 
 
-Wait for the Gates ...
-======================
+Wait for the Gates...
+=====================
 ... **of Heaven to Open**
 
 *All the days of my appointed time will I wait.* - Job 14:14, KJV
@@ -305,6 +330,7 @@ How Shall We Live?
 
 Gaining By Giving
 =================
+
 *A generous person will prosper; whoever refreshes others will be refreshed.* – Prov 11:25
  
 If I desire to flourish in soul, I must not hoard up my stores but must distribute to the poor. To be close and niggardly is the world's way to prosperity, but it is not God's way, for He saith, "There is that scattereth, and yet increaseth; and there is that withholdeth more than is meet, and it tendeth to poverty."
@@ -321,8 +347,8 @@ But there is a mental and spiritual fatness which I would greatly covet, and thi
     :width: 200px
 
 
-Pray That Christ’s Kingdom ...
-==============================
+Pray That Christ’s Kingdom...
+=============================
 ... **May Be Extended**
 
 *He shall see His seed; He shall prolong His days, and the pleasure of the Lord shall prosper in His hand.* - Isaiah 53:10
@@ -339,8 +365,8 @@ Remember that the same Christ who tells us to say, "Give us this day our daily b
     :width: 200px
 
 
-God Loves To Hear You ...
-=========================
+God Loves To Hear You...
+========================
 ... **Claim His Promises**
 
 *Do as thou hast said.* - 2 Samuel 7:25, KJV
@@ -357,8 +383,10 @@ Never think that God will be offended if you remind him of his promises. He love
     :width: 200px
 
 
-We Look At Things That Are Not Seen
-===================================
+We Look At Things...
+====================
+... **That Are Not Seen**
+
 *We look not at the things which are seen, but at the things which are not seen.* - 2 Corinthians 4:18 KJV
 
 In our Christian pilgrimage it is good, for the most part, to be looking forward. Forward lies the crown, and onward is the goal. Whether it be for hope, for joy, for consolation, or for the inspiring of our love, the future must, after all, be the grand object of the eye of faith.
@@ -375,6 +403,7 @@ The joys of heaven will surely compensate for the sorrows of earth. So let us no
 
 Faith Leads to Obedience
 ========================
+
 *Do we then make void the law through faith? God forbid: yea, we establish the law.* - Romans 3:31, KJV
 
 When the believer is adopted into the Lord's family, his relationship to old Adam and the law ceases at once; then he is under a new rule, and a new covenant. Believer, you are God's child; it is your first duty to obey your heavenly Father.
@@ -395,6 +424,7 @@ May the Holy Ghost make your heart obedient to the constraining power of Christ'
 
 Care For The Poor
 =================
+
 *Remember the poor.* - Galatians 2:10, KJV
 
 Why does God allow so many of his children to be poor? He could make them all rich if he pleased. There is no necessity that they should be poor, except that he allows it. He could supply them, but he does not choose to do so; he allows them to suffer want, he allows them to remain poor and unnoticed. Why is this?
@@ -415,6 +445,7 @@ So let us consider it a privilege, not a duty, to help the poor of the Lord’s 
 
 Communion And Service
 =====================
+
 *Martha was distracted with all her preparations...* - Luke 10:40, NASB
 
 Martha’s fault was not that she was preparing and serving the meal: it is a good thing for every Christian to serve others. In fact, “I serve” should be the motto of all the princes of the royal family of heaven. And it was not Martha’s fault that she had “much serving” (KJV). We cannot do too much. Let us do all that we possibly can  in the Master’s service. It was a great privilege to be busy preparing a feast for the Master. How fortunate she was to have an opportunity of entertaining so blessed a guest; and fortunate, too, to have the spirit to throw her whole soul so heartily into the task.
@@ -433,6 +464,7 @@ If we are to be truly useful in God’s service in this life, we must keep ourse
 
 The Eternal God is Your Helper
 ==============================
+
 *I will help you, says the Lord.* - Isaiah 41:14, NKJV
 
 This morning let us hear the Lord Jesus speak to each one of us: “I will help you,” he says.
@@ -453,6 +485,7 @@ Bring everything to God — your sadness and loneliness, your troubles, your nee
 
 How to Enjoy Peace With God
 ===========================
+
 *Father, I have sinned.* – Luke 15:18 KJV
 
 Those whom Christ has washed in his precious blood no longer stand where they can be condemned, but are once for all “accepted in the Beloved”. They are God’s precious children. But even children offend, so it is good for them to be in the habit of going every day to their heavenly Father to confess their sin, and acknowledge the sinfulness in their character.
@@ -469,8 +502,27 @@ We have been cleansed once for all, but our feet still need to be washed from th
     :width: 200px
 
 
-The Kingdom of Heaven ...
-=========================
+How to Be Saved
+===============
+
+*If you confess with your mouth the Lord Jesus and believe in your heart that God has raised Him from the dead, you will be saved.* - Romans 10:9, NKJV
+
+There must be confession with the mouth. Have you made it? Have you openly avowed your faith in Jesus as the Saviour whom God has raised from the dead, and have you done it in God's way? Let us all answer this question honestly.
+
+There must also be belief with the heart. Do you sincerely believe in the risen Lord Jesus? Do you trust in Him as your sole hope of salvation? Is this trust from your heart? Let us all answer this question before God.
+
+If you can truly claim that you have both confessed Christ and believed in Him, then you are saved. The text does not say it may be so, but it is plain as a pikestaff and clear as the sun in the heavens: "Thou shalt be saved." As a believer and a confessor, you may lay your hand on this promise and plead it before the Lord God at this moment, and throughout life, and in the hour of death, and at the Day of Judgement.
+
+You must be saved from the guilt of sin, the power of sin, the punishment of sin, and ultimately from the very being of sin. God has said it—"Thou shalt be saved." If you believe it, you will be saved. You are saved. Glory be to God forever and ever! – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Kingdom of Heaven...
+========================
 ... **is for the Peacemakers**
 
 *Blessed are the peacemakers, for they will be called children of God.* - Matthew 5:9, NIV
@@ -546,8 +598,8 @@ If you are distressed because you cannot love Christ as much as you would like t
     :width: 200px
 
 
-You Will Be Satisfied ...
-=========================
+You Will Be Satisfied...
+========================
 ... **by God’s Grace**
 
 *They are abundantly satisfied with the fullness of Your house, And You give them drink from the river of Your pleasures.* - Psalm 36:8, NKJV
@@ -566,8 +618,8 @@ I once thought that if I could only get the left-overs at God’s back door of g
     :width: 200px
 
 
-You Must Pass Through Tribulation ...
-=====================================
+You Must Pass Through Tribulation...
+====================================
 ... **to Enter the Kingdom of God**
 
 *We must through much tribulation enter into the kingdom of God.* - Acts 14:22, KJV
@@ -581,6 +633,91 @@ In ancient times, a royal mark was placed on all the treasures that belonged to 
 Although God’s children must walk through the path of tribulation, they have the comfort of knowing that their Master has walked this path before them. They have his presence and kindness to cheer them, his grace to support them, and his example to teach them how to endure.
 
 When you have finally reached “the kingdom,” it will more than make amends for the “much tribulation” through which you passed to enter it. – Charles H. Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Cry Out to God
+==============
+
+*To You I will cry, O Lord my Rock: Do not be silent to me, Lest, if You are silent to me, I become like those who go down to the pit.* - Psalm 28:1
+
+When everything fails us, we must direct our cry to the Lord, for to cry to other people is to waste our efforts. The Lord is willing to hear, and he is able to help.
+
+Those who genuinely cry to God aren’t satisfied with the results of prayer itself in calming the mind—they must go further and obtain actual replies from heaven. They dread even a little of God’s silence. God’s voice is often so terrible that it shakes the wilderness; but his silence is equally terrible to an eager suppliant.
+
+When God seems to close his ear, we must not therefore close our mouths. Instead, we should cry to him all the more, and depend on him more. He will not long deny us a hearing.
+
+What a dreadful situation we would be in if the Lord should become forever silent to our prayers. Without the God who answers prayer, we would be in a more terrible position than the dead in the grave, or even those who are lost forever.
+
+We must have answers to prayer. Surely the Lord will speak peace to our agitated minds. He can never find it in his heart to permit his beloved people to perish. – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Your Tears Will Cease
+=====================
+
+*And God shall wipe away all tears from their eyes...* - Revelation 21:4, KJV
+
+Yes, we shall come to this if we are believers. Sorrow shall cease, and tears shall be wiped away. This is the world of weeping, but it passes away. There shall be a new heaven and a new earth, so says the first verse of this chapter; and therefore there will be nothing to weep over concerning the Fall and its consequent miseries.
+
+Read the second verse and note how it speaks of the bride and her marriage. The Lamb's wedding is a time for boundless pleasure, and tears would be out of place. The third verse says that God Himself will dwell among men; and surely at His right hand there are pleasures forevermore, and tears can no longer flow.
+
+What will our state be when there will be no more sorrow, nor crying, neither shall there be any more pain? This will be more glorious than we can as yet imagine. O eyes that are red with weeping, cease your scalding flow, for in a little while ye shall know no more tears! None can wipe tears away like the God of love, but He is coming to do it.
+
+"Weeping may endure for a night, but joy cometh in the morning." Come, Lord, and tarry not; for now both men and women must weep! – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Pray for the Servants of God
+============================
+
+*Brethren, pray for us...* - 1 Thessalonians 5:25
+
+I want to remind you of the importance of praying for ministers.
+
+The work of ministers of Christ involves the salvation or condemnation of thousands. We deal with souls for God, on his eternal business (2 Corinthians 2:16, NKJV). We have a very heavy responsibility which rests upon us. It will be a great blessing if in the end we are found clear of the blood of all men.
+
+As officers in Christ’s army, we are the special target of the hatred of men and devils. They watch for us to stumble, to attack us when we are down. We witness very sad backslidings, and our hearts are wounded; we see millions perishing, and our spirits sink.
+
+You are right not to look to us, but to our Master for spiritual blessings; however, dear friends, intercede for us with God. We will be in misery without your prayers, but we will be blessed if we live in your supplications before God.
+
+Ask then, again and again, that we may be the earthen vessels into which the Lord may put the treasure of the gospel. We, the whole company of missionaries, ministers, and servants of God in various capacities, do in the name of Jesus, beg you that you pray for us. – Charles Spurgeon
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Pray for the Glory of God...
+============================
+... **to Fill the Earth**
+
+*Let the whole earth be filled with His glory. Amen and Amen.* - Psalm 72:19, NKJV
+
+There are times when to pray for just one person is enough to stagger us. To intercede for a whole city needs a vast amount of faith. But how far-reaching was the psalmist’s request:
+
+    *“Let the whole earth be filled with his glory.”*
+
+This prayer does not ignore a single country, however crushed it might be under the foot of superstition. This prayer is uttered for every culture and race. It encompasses the entire earth, leaving out not even one son or daughter of Adam.
+
+Is this your prayer? Turn your eyes to Calvary. Look at the Lord of Life nailed to a cross. When you feel his blood applied to your guilt, and when you know that he has blotted out your sins, how can you avoid falling to your knees and crying out, “Let the whole earth be filled with his glory; Amen, and Amen.”
+
+How can you bow before your crucified Saviour in loving homage, and not wish to see your King the master of the world? How can you pretend to love Prince Jesus and not desire to see him be the universal ruler?
+
+Your religion is worthless unless it leads you to wish for that same mercy that God has extended to you to bless the whole world. – Charles Spurgeon 
 
 
 

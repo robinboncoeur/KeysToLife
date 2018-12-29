@@ -8,11 +8,15 @@ Introduction
 Why These Pages? 
 ================
 
-I feel quite blessed to receive in my email a daily reminder that God loves me, died for me and wants my salvation much more than even I do, which is at the same time sad - as it is an indictment of my laodicean Christian mindset - and yet reassuring, because there's hope for even me.
+I feel quite blessed to receive in my email a daily reminder that God loves me, died for me and wants my salvation much more than even I do, which is at the same time sad - as it is an indictment of my laodicean Christian mindset - and yet reassuring, because there's hope for *even me*.
 
-The text in this document are saved emailed devotionals, generously provided by `Good News Unlimited <https://www.goodnewsunlimited.com/>`_. They feature the writings of pastor Elieser Gonzalez, Dr Desmond Ford and the great Charles Spurgeon. The text has been used without permission, but with the express purpose to promote the important message the words carry. I am quite certain in providing these pages I am working in line with the authors of the text and not stealing anything they are giving me: they are giving this to all of us!
+The text in this document are saved emailed devotionals, generously provided by `Good News Unlimited <https://www.goodnewsunlimited.com/>`_. They feature the writings of pastor Elieser Gonzalez, Dr Desmond Ford and the great Charles Spurgeon, as well as a few select writings by other authors.
 
-I hope that these pages may prove helpful and provide hope to others, as much as this message has provided hope to me.
+The text has been copied from the emails and used without permission, but with the express purpose to **promote the important message the words carry**. These writers said what I feel so much more eloquently and accurately, with a wealth of scriptural knowledge based on years of study - work that seems ever so underexposed and unappreciated for the wealth of power and inspiration contained therein, so I felt compelled to give it an additional face to the web in the hopes more would see, read and be as thankful as I am for these words!
+
+I am quite certain in providing these pages I am working in line with the authors of the text and not stealing anything they are giving me: they are giving this to all of us!
+
+**I hope that these pages may prove helpful and provide hope to others, as much as this message has provided hope to me.**
 
 
 .. image:: ../images/Flourish02.png
@@ -125,4 +129,66 @@ Faith alone, when based upon the sure promises of God, must save us. All that hu
 
 The right way, however, is the Lord Jesus Christ. Whoever desires to seek another path has already missed the right way; for Paul says to the Galatians: “If righteousness comes through the law, then Christ died in vain” (Galatians 2:21). Therefore I say people must fall upon this Gospel and be broken to pieces and in deep consciousness lie prostrate, like someone who is powerless, unable to move hand or foot. You must only lie motionless and cry: “Almighty God, merciful Father, help me now! I cannot help myself. Christ, my Lord, help me now, for with my own effort all is lost!” – Martin Luther
 
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Confess and Believe
+===================
+
+*Immediately the girl arose and walked.* - Mark 5:42, NKJV
+
+When we get to the end of our tether and almost despair of help, as Jairus did after he was informed that his little daughter was dead, that is when living, desperate faith lays hold and cries, "It shall be done!"
+
+Sickness, and even death, cannot exist in the Presence of Christ. That’s why the girl immediately arose and walked.
+
+The Bible tells us "Only acknowledge your iniquity..." (Jeremiah 3:13, NKJV) and "Only believe..." (Mark 5:36). Here we have two preparatory steps to victory and Heaven. Everyone, regardless of how wicked they have been, is sure to be victorious if they can only confess and believe.
+
+During the Reformation, Luther saw the futility of working in order to find peace. That’s why he preached "Justification by faith."
+
+It was not long, however, until this truth was abused, and some began to cry, "Only believe! Only believe!" For, said they, "If we are justified by faith, and not by works, then why confess? Believe, and it is done." This sounded good, but it soon became a matter of the head rather than of heart faith.
+
+Friend, like the daughter of Jairus, when you confess and believe, you will also arise and walk in newness of life. – E.E. Shelhamer
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Gentleness of God
+=====================
+
+*As an eagle stirs up its nest, Hovers over its young, Spreading out its wings, taking them up, Carrying them on its wings, So the Lord alone led him.* - Deuteronomy 32:11–12
+
+These words are taken from the swan song of Moses. In that song there is a remarkable alternation between praise and blame. It celebrates the goodness and faithfulness of God; it chronicles the wickedness and unfaithfulness of His people.
+
+As I watch the eagles at their work I am impressed with their strength and the consequent security of the eaglets. Watch the eagles' wings in the storm. They seem to beat back the rushing of the wind and master it, or use their strength to travel with it.
+
+Watch the eagles' wings as they fight off an enemy, and see with what skill they beat down the foe that would harm the eaglets. Watch the wings as they brood over the eaglets, and mark their gentleness.
+
+Gentleness is not weakness; gentleness is strength held in restraint. We talk, said George Matheson, of the gentleness of the brook. The brook has no gentleness. It rushes and roars down its way over the pebbles.
+
+If we would speak of gentleness let us stand on the beach and see the mighty ocean with silver foam kiss the feet of the little child that plays on the shore. That is gentleness. That is the true picture of God. – G. Campbell Morgan
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+There Was No Room For Jesus...
+==============================
+... **But There’s Room For You**
+
+*There was no room for them in the inn.* - Luke 2:7
+*Yet there is room.* - Luke 14:22
+
+Although "there was no room" for Christ at Bethlehem's inn, yet, as the second part of our text explains, "there is room" for you in His heart of love, in His Kingdom of Grace, in His Father's heavenly mansions. At His manger crib "there is room' for every sinner, especially the desperate and downtrodden. That includes you, with all the guilt and wrongdoing and regrets that disturb you.
+
+When you come to Jesus in faith and He comes to you in His mercy, He removes the curse of your sin. He washes away its stain. The fire of His devotion burns away your iniquity. The power of His presence purifies your heart and strengthens your life. Take courage and believe on this Christmas Day that nothing can keep you from Bethlehem and the forgiveness of the newborn Saviour!
+
+From shore to shore let us unite in exulting, "Glory to God in the highest, and on earth peace, good will toward men," all through the Christ Child for whom “there was no room" at His birth, but through whom, by the rebirth of faith, we find eternal room! God grant every one of you this Christmas blessing! Amen! – Walter A. Maier
 

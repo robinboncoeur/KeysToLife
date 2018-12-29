@@ -10,6 +10,7 @@ The Gospel Message
 
 The Gospel is for Free
 ======================
+
 *Blessed are the poor in spirit.* - Matthew 5:3
 
 True religion is the union of the heart with God. It is not being a member of a denomination, or simply being baptized. All these things may come into it, but they are not the essence of true religion. True religion is the spirit, the heart, the mind.
@@ -32,6 +33,7 @@ If God is going to give us something as infinite as eternity, how could we finit
 
 The News that Travels Quickly
 =============================
+
 *And if by grace, then it cannot be based on works; if it were, grace would no longer be grace.* - Romans 11:6
 
 Grace is mentioned about 130 times in the New Testament alone. Paul begins and ends each of his epistles with it. Along with one or two literary relatives, it turned the western world upside down in the sixteenth century – we call that event the Reformation.
@@ -56,6 +58,7 @@ Tell the world that grace is God’s unimaginable generosity. It led Him to give
 
 That's Grace
 ============
+
 *For God so loved the world that He gave His only begotten Son... (He) did not send His Son into the world to condemn the world, but that the world through Him might be saved.* - John 3:16-17
 
 Only as we recognize that grace is essentially for the graceless do we gather its essential sweetness. In the Old Testament, its synonyms in the Hebrew signify favor and loving kindness. Thus the word binds together both Testaments, signifying that God, because He is Love, is seeking sinners to bless and change them, and to fill their lives with fruitfulness, innocence and joy.
@@ -86,6 +89,7 @@ Love is grace. Mercy is grace. Forgiveness is grace. All gifts are grace. Joy is
 
 Illustrations of Grace
 ======================
+
 Remember Abraham praying for Ishmael. *"O that Ishmael might live before Thee!"* But our munificent heavenly Father not only gave him Ishmael in lasting existence but also Isaac, and descendants as numerous as the stars of heaven for we, if Christ’s, are Abraham's seed. He asked for the life of one, and God gave him millions. That's grace.
 
 Think of Jacob. He prayed that God might guarantee him his bread and water, but what did God do? By the time Jacob came that way again he was rich, living high so to speak, and a man abounding in children and all good things.
@@ -106,8 +110,8 @@ No wonder we read:
     :width: 200px
 
 
-The Glorious Answer ...
-=======================
+The Glorious Answer...
+======================
 ... **To All Our Questions**
 
 *And God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus* – Ephesians 2:6.
@@ -126,8 +130,8 @@ If Christ is alive and interceding for us in the heavens above, then his gospel 
     :width: 200px
 
 
-Old Testament Heroes ...
-========================
+Old Testament Heroes...
+=======================
 ... **Pointed to the Cross**
  
 *If you believed Moses, you would believe Me, for he wrote about Me.* - John 5:46
@@ -168,8 +172,8 @@ The Cross of Christ also proclaims, “There's more to come! Life is not just pa
     :width: 200px
 
 
-Calvary Has Given Us ...
-========================
+Calvary Has Given Us...
+=======================
 ... **The Tree of Life**
 
 *To the one who is victorious, I will give the right to eat from the tree of life, which is in the paradise of God.* - Revelation 2:7
@@ -187,8 +191,8 @@ While a thief stealing from the tree in Eden was expelled from Paradise, another
     :width: 200px
 
 
-Jesus Saves You ...
-===================
+Jesus Saves You...
+==================
 ... **Even When You Don’t Understand**
 
 *Near the Cross of Jesus stood his mother, his mother's sister, Mary the wife of Clopas, and Mary Magdalene.* - John 19:25
@@ -209,8 +213,8 @@ This man who was responsible for the execution of Jesus confessed his faith in t
     :width: 200px
 
 
-Jesus Has Conquered Death ...
-=============================
+Jesus Has Conquered Death...
+============================
 ... ** For You**
 
 *Where, O death, is your victory? Where, O death, is your sting?* - 1 Corinthians 15:55
@@ -235,8 +239,8 @@ Death has been conquered! And Jesus says to all who follow him:
     :width: 200px
 
 
-Christ’s Miracles and Parables ...
-==================================
+Christ’s Miracles and Parables...
+=================================
 ... **Teach Justification In Him Alone**
 
 *To the one who does not work but trusts God who justifies the ungodly, their faith is credited as righteousness.* - Romans 4:15
@@ -255,8 +259,8 @@ Justification is a declaring righteous, not a making righteous. But God does not
     :width: 200px
 
 
-Christ Has Justified Us ...
-===========================
+Christ Has Justified Us...
+==========================
 ... **Through His Death**
 
 *Just as one trespass resulted in condemnation for all people, so also one righteous act resulted in justification and life for all people.* - Romans 5:18
@@ -275,8 +279,8 @@ Justification is concerned with what has been entirely done outside of us. The r
     :width: 200px
 
 
-You Are Justified ...
-=====================
+You Are Justified...
+====================
 ... **Through Faith Alone**
 
 *Abram believed the Lord, and he credited it to him as righteousness.* - Genesis 15:6, NIV
@@ -297,6 +301,7 @@ The reward has to be **all** of grace. Therefore, it is through faith and faith 
 
 You Belong To God
 =================
+
 *You are not your own; you were bought with a price. So glorify God in your body.* - 1 Corinthians 6:19-20 RSV
 
 The answer from Scripture to man's claim of self-ownership is clear, unequivocal and final. We are not our own because we were bought. We were delivered, if we will accept it. God's own Son valued us so highly that he would not leave us in the darkness of the shadow of condemnation and death. By his own agonies he saves us from our agonies, if we will let him.
@@ -313,8 +318,8 @@ We belong to God – every cell, every talent, every capacity for thought, feeli
     :width: 200px
 
 
-Steady Your Soul ...
-====================
+Steady Your Soul...
+===================
 ... **at the Foot of the Cross**
 
 *May I never boast except in the Cross of our Lord Jesus Christ, through which the world has been crucified to me, and I to the world.* - Galatians 6:14
@@ -360,9 +365,12 @@ Jesus’ death teaches us that we are not our own, for we were bought with a pri
 
 Righteousness Through Christ
 ============================
+
 *One has died for all; therefore have all died.* - 2 Corinthians 5:14, RSV
 
-The Bible asserts that when Jesus died, then the whole wicked world potentially died in him and paid the price for its sins. Because of this, God is already reconciled to all men, so he says, “Be ye reconciled to God” (2 Corinthians 5:20).
+The Bible asserts that when Jesus died, then the whole wicked world potentially died in him and paid the price for its sins. Because of this, God is already reconciled to all men, so he says,
+
+    *Be ye reconciled to God* 2 Corinthians 5:20
 
 Potentially all men are saved; all that individuals need to do is accept so great a salvation and by that act of acceptance, lay hold of eternal life.
 
@@ -378,8 +386,8 @@ Thus it is that repentance, confession of sin, restitution, and obedience are al
     :width: 200px
 
 
-We Have Passed ...
-==================
+We Have Passed...
+=================
 ... **From Death to Life**
 
 *He who hears my word and believes in him who sent me has everlasting life, and shall not come into judgment, but has passed from death into life.* - John 5:24, NKJV
@@ -400,6 +408,7 @@ Furthermore, anyone who receives the blood-bought gift of righteousness cannot r
 
 Everyone Can Be Saved
 =====================
+
 *I am not ashamed of the gospel of Christ: for it is the power of God to salvation to everyone who believes ... For there is no distinction ... for the same Lord over all is rich to all that call upon him.* - Romans 1:16; 10:12, NIV
 
 The religion of many people is like a headache: they have no desire to lose their head, but it hurts them to keep it. This leads to the question: Is Christianity hard or easy? Or put another way: does salvation depend mostly upon God's doing or mine?
@@ -426,6 +435,7 @@ Heaven is for everyone who believes. – Des Ford
 
 The “Good News” Religion
 ========================
+
 *This man welcomes sinners and eats with them.* - Luke 15:2, NIV
 
 Religion, as with all other good things, is a two-sided coin. There are only two religions in the world, and only one of them is pleasing to God. The popular religion of the world says, "Be good and God will love you." This religion is human-centered, works-centered, subjective, and vain.
@@ -446,6 +456,7 @@ The believer has not need to be anxious about what God thinks of him but only wh
 
 God Is Not Exclusive
 ====================
+
 *There is one body and one Spirit, just as you were called to one hope when you were called; one Lord, one faith, one baptism; one God and Father of all, who is over all and through all and in all.* - Ephesians 4:4–6
 
 There is just one family of God, though its members are scattered among many groups. According to the New Testament,
@@ -468,6 +479,7 @@ Thank God that the condition of heaven is the acceptance of the perfect righteou
 
 The Gospel Is Better Than Law
 =============================
+
 *The law was given through Moses, but grace and truth came through Jesus Christ.* John 1:17, NKJV
 
 Any religion that eclipses the Cross of Christ by the Mount of Sinai is a false religion; in whatever church it may happen.
@@ -505,6 +517,7 @@ When the Gospel was proclaimed at Pentecost, **3,000 people lived.**
 
 Believe in Jesus
 ================
+
 *He who hears My word and believes in Him who sent Me has everlasting life, and shall not come into judgment, but has passed from death into life.* - John 5:24, NKJV
 
 Nearly one hundred times (98 to be exact), John's Gospel uses the word, "believe." It’s there in almost every chapter.
@@ -554,8 +567,8 @@ That’s why it’s our great privilege to know that paradise is ours this very 
     :width: 200px
 
 
-Jesus’ First Miracle ...
-========================
+Jesus’ First Miracle...
+=======================
 ... **Was Important! Why?**
  
 *When the master of ceremonies tasted the water that was now wine, not knowing where it had come from... he called the bridegroom over. “A host always serves the best wine first,” he said. “But you have kept the best until now!”* - John 2:9,10, NLT
@@ -578,8 +591,8 @@ Moses had to die before the people got to enter the promised land. The law can�
     :width: 200px
 
 
-The Grace of the Gospel ...
-===========================
+The Grace of the Gospel...
+==========================
 ... **Carries You**
  
 *Fruit trees of all kinds will grow on both banks of the river. Their leaves will not wither, nor will their fruit fail. Every month they will bear fruit, because the water from the sanctuary flows to them. Their fruit will serve for food and their leaves for healing.* - Ezekiel 47:12, NIV
@@ -613,8 +626,8 @@ Calvary is the double cure for sin. It takes away both sin’s guilt and its pow
     :width: 200px
 
 
-God Sees You ...
-================
+God Sees You...
+===============
 ... **as If You’d Already Arrived**
 
 *God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus.* - Ephesians 2:6, NIV
@@ -656,8 +669,8 @@ Holiness means that you take God into account in everything. Anything less is no
     :width: 200px
 
 
-God Has a Plan ...
-==================
+God Has a Plan...
+=================
 ... **to Get Us to Heaven**
 
 *God raised us up with Christ and seated us with him in the heavenly realms in Christ Jesus, in order that in the coming ages he might show the incomparable riches of his grace, expressed in his kindness to us in Christ Jesus.* - Ephesians 2:6–7, NIV
@@ -704,8 +717,8 @@ God’s defining quality is love. And therefore it is written,
     :width: 200px
 
 
-You Can Look Forward ...
-========================
+You Can Look Forward...
+=======================
 ... **to Christ’s Return Without Fear**
 
 *He made us accepted in the Beloved.* - Ephesians 1:6, NKJV
@@ -721,43 +734,69 @@ The Book of Revelation clearly points to the second coming of Christ. That same 
 There are no grounds for panic theology as we study Revelation, the book of the parousia. The returning One is he who once hung upon the cross for our sakes. Our future is in his hands. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Salvation is For Sinners
+========================
+
+*For all those who exalt themselves will be humbled, and those who humble themselves will be exalted.* - Luke 18:14, NIV
+
+Jesus told a story in Luke 18 to illustrate how salvation works. There were two men praying in church. One was a religious teacher, who spent his entire life making sure that he followed every rule of his religion. He even did more than was required, to make sure that he was better than other people. He said to God in a loud voice: “I’m really glad I’m not like other people,” as he glanced around and spotting a tax collector praying in a dark corner of the church. “I fast twice a week and I give more generously than necessary to the church.”
+ 
+The tax collector, on the other hand, was too timid even to lift his eyes towards heaven. All he could say to God was this: “God, be merciful to me, a sinner!”
+ 
+Jesus left no one in any doubt about the outcome. God, he said, heard the sincere prayer of the tax collector, and gave him salvation, but turned away from the pride and arrogance of the religious leader (Luke 18:14).
+ 
+So it is with us. We cannot do anything that will help to save us. The Bible tells us about the only thing we can do. “Believe in the Lord Jesus, and you will be saved” (Acts 16:31). – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Cross Changes Everything
+============================
+
+*"When I am lifted up from the earth, I will draw everyone to me."* - John 12:32, CEB
+
+The most influential person of history is Jesus Christ. He is the only person who ever lived who claimed to be God, and yet was considered sane by the best of his generation.
+ 
+Unbelievable as it was, Jesus was planning to die — to allow himself to be killed by his enemies. He had come to this earth to rescue the world from the curse of sin, to pay the price for sin so we would not need to suffer its penalty. That price was death. The heart of the Bible is the Gospel, and the heart of the Gospel is the Cross. This is the story of how God has solved the problem of sin in the world. Jesus’ death on the Cross is the event that tells us the whole story of how God loves us.
+
+At the Cross we learn to understand God. Everything in the Bible either points towards the Cross or refers back to it. Without Jesus’ death on the Cross, there wouldn’t be any happy ending to the Bible story, or to the world’s history. Without the Cross, our lives would have no hope, and death would be a black pit of nothingness.
+
+**The Cross changes everything.**
+
+Despair becomes joy, death becomes life, and ugliness becomes beauty. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Welcome to the Party!
+=====================
+
+*Let us rejoice and be glad and give him glory! For the wedding of the Lamb has come.* - Revelation 19:6–9
+
+A party is Christ’s favorite symbol of the gospel message — the good, glad and merry tidings, which make the heart to sing and the feet to dance.
+
+He began his ministry with a weeklong marriage feast, where wine made glad the heart of man.
+
+He ended his ministry with two feasts in the final week, the first being the feast at Simon’s house where Mary anointed him, and the second being the feast of Passover. The wine’s crushed grapes yield nourishment and tell of God’s love for us in the shedding of Christ’s blood. The broken grapes of the Passover feast parallel the broken alabaster box at Simon’s feast.
+
+In preparing Christ for his burial by her anointing, Mary also sealed her own act of love in the memory of saints down the ages. For Christ promised that wherever the gospel would be preached, her loving kindness would always be remembered. Here is evidence that the one about to die held the future of the world in his hands. How else could Christ know his words would last?
+
+In saying this, Christ teaches us that nothing in the world is as important as genuine, unselfish kindness manifested in look, word, and deed. This is the evidence that convinces the world about Christ and Christianity. – Des Ford
+
+
 
 Back to top of: :ref:`df-GospelMessage`
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -766,13 +805,16 @@ Back to top of: :ref:`df-GospelMessage`
     :align: center
     :width: 300px
 
+
+
+
 .. _df-GodsNature:
 
 The Nature of Our God
 *********************
 
 
-God Creates ...
+God Creates...
 ===============
 ... **What is Beautiful and Good**
 
@@ -796,6 +838,7 @@ Consider the great blessings of life. We usually point out calamity and loss bec
 
 God Gives Meaning to Everything
 ===============================
+
 *You believe in God; believe also in me.* - John 14:1b, NIV
 
 The main reason for unbelief ultimately, is that people only believe what they wish to believe. After all, a small eyelid can shut out the entire sun!
@@ -814,6 +857,7 @@ Without God, nothing has meaning. If you take God away, you have annihilated eve
 
 How To See God in Everything
 ============================
+
 *Blessed are the pure in heart, for they will see God. Blessed are the peacemakers, for they will be called children of God.* - Matthew 5:8–9, NIV
 
 What wonderful things are contained in Jesus’ words! What we are determines what we see. This verse says that life is a mirror. It promises all sorts of delights to those who get into a right relationship with Jesus. In that relationship, we will see God in everything.
@@ -832,6 +876,7 @@ What we see depends on what we are. Because life is a mirror, we will reflect th
 
 Study the Scriptures
 ====================
+
 *These are written that you may believe that Jesus is the Christ, the Son of God, and that by believing you may have life in his name.* - John 20:31, NKJV
 
 From time to time we feel as barren and as fruitless as Aaron’s rod before it budded (Numbers 17). We sometimes feel as empty as the widow’s cruse of oil (1 Kings 17), as desperate as sinking Peter (Matthew 14), and as frustrated as the disciples who fished all night and took nothing in their nets (Luke 5).
@@ -852,6 +897,7 @@ When our Lord Jesus rose from the dead, he breathed upon his disciples and said,
 
 Rules Are Not Enough
 ====================
+
 *Show me Your ways, O Lord; Teach me Your paths. Lead me in Your truth and teach me, For You are the God of my salvation.* - Psalm 25:4–5, NKJV
 
 Issues are rarely right or wrong. Often they are between what is bad, and which is less bad. A wise person learns that “when two duties conflict, one ceases to be a duty.”
@@ -870,8 +916,8 @@ One day soon all the greys and all the blacks will be gone—morally as well as 
     :width: 200px
 
 
-Thank God That ...
-==================
+Thank God That...
+=================
 ... **Christ is Our Judge**
 
 *For we must all appear before the judgment seat of Christ; that each one may receive the things done in the body, according to that he has done, whether good or bad.* - 2 Corinthians 5:10, NKJV
@@ -900,6 +946,7 @@ The Crucified One is to be the Judge of sinners. Good News indeed! This is where
 
 No Condemnation
 ===============
+
 *God will not take away a life; he will devise plans so as not to keep an outcast banished forever from his presence.* - 2 Samuel 14:13 NRSV
 
 As Adam represented the race in Eden, so Christ – the second Adam (1 Corinthians 15:45) – represents humanity at the cross:
@@ -930,8 +977,8 @@ If Calvary does not move us, God has nothing better to convince us. The Cross is
     :width: 200px
 
 
-Christ’s Resurrection ...
-=========================
+Christ’s Resurrection...
+========================
 ... **Is Open To All**
 
 *Taste and see that the Lord is good.* - Psalm 34:8, NKJV
@@ -954,8 +1001,8 @@ This power is now available to all who will believe. – Des Ford
     :width: 200px
 
 
-God Pours His Love ...
-======================
+God Pours His Love...
+=====================
 ... **Into Our Hearts**
 
 *We know how dearly God loves us, because he has given us the Holy Spirit to fill our hearts with his love.* - Romans 5:5, NLT
@@ -980,6 +1027,7 @@ It is in this reality of God’s Word that we must learn to live. – Des Ford
 
 The Real Missing Link
 =====================
+
 *When the Son of Man comes, will he find faith on the earth?* - Luke 18:8, NIV
 
 For over a century and a half, paleoanthropologists have searched for the “missing link” – the supposed ancestors of modern man. Occasionally, a very small bone has been magnified in significance and turned into a “missing link”. But one by one, all these have been dismissed as wrong: either errors or outright fraud.
@@ -998,8 +1046,8 @@ It is faith that is missing at the heart of our society today. (Luke 18:8) – D
     :width: 200px
 
 
-Keep Jesus Central ...
-======================
+Keep Jesus Central...
+=====================
 ... **in Your Life**
 
 *And He, when He comes, will convict the world concerning sin and righteousness and judgement.* - John 16:8, NASB
@@ -1115,48 +1163,39 @@ What does the miracle mean? God is interested in you. Here is a beautiful verse:
 I wish this could be done once and then last forever. Usually I have to cast my care upon God again and again. But you can trust God that he cares for you. He cares for the common people. God changes what is plain in your life into something special. Only God can change your water into wine. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Two Gardens
+===============
+
+*On each side of the river stood the tree of life... And the leaves of the tree are for the healing of the nations.* - Revelation 22:2, NIV
+
+The Bible story began with the story of creation, and man’s first home in a garden. God made the first man and woman, Adam and Eve, in his image, as his children. They disobeyed God, bringing sin, death and misery into the world.
+
+The crucifixion story began in another garden, the Garden of Gethsemane, where Jesus began the work of paying the price for Adam and Eve’s sin.
+
+In the Garden of Eden, man was lost. In the Garden of Gethsemane, Jesus began his work of redemption.
+
+In the centre of the Garden of Eden was the tree of the Knowledge of Good and Evil. It was beautiful, and it had delicious fruit. The devil told Adam and Eve it would make them wise, but it did not. When they ate the fruit, their disobedience introduced sin, misery and death into the world.
+
+Thousands of years later, the Cross on which Jesus was crucified, made of the wood of a tree, shows us the true wisdom of God. The Cross is a terrible picture of the results of man’s evil, but it is also beautiful because it reveals the goodness of God.
+
+Calvary has transformed the tree of the Knowledge of Good and Evil into a Tree of Life for all who believe. – Des Ford
 
 
 Back to top of: :ref:`df-GodsNature`
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 .. image:: ../images/Flourish03.png
     :align: center
     :width: 300px
+
+
+
 
 .. _df-ForByGrace:
 
@@ -1166,6 +1205,7 @@ For By Grace are You Saved
 
 Justified in Jesus
 ==================
+
 The whole world has been justified in Jesus. Sadly, not all the world knows.
 
 The essence of true religion is not to tell people, ‘If you are good, God will love you.’ That’s a hopeless sort of affair. When are we going to be good enough? Is 80 per cent goodness sufficient? 85 per cent? 90, 95, 99.999 per cent? That’s a hopeless thing.
@@ -1192,7 +1232,8 @@ It’s like a princess marrying a pauper. She gets his debts, he shares in the k
 
 Made Clean
 ==========
-*Lord, if you are willing, you can make me clean* - Matthew 8:2
+
+*Lord, if you are willing, you can make me clean.* - Matthew 8:2
 
 Christ’s Sermon calls upon us to pray for our enemies, to bless those who curse us, do good to them that hate us. We are never to worry, never to have two masters, to seek first the kingdom of God, and to put our treasures in heaven.
 
@@ -1214,6 +1255,7 @@ It is only as we come to Christ as lepers that he will make us clean. – Des Fo
 
 Declared Righteous
 ==================
+
 *Just as the result of one trespass was condemnation for all men, so also the result of one act of righteousness was justification that brings life for all men.* – Romans 5:18, NIV
 
 Justified is the opposite of condemned. Condemned does not mean to make bad. It means to declare bad. Justify does not mean to make righteous. It means to declare righteous.
@@ -1238,8 +1280,8 @@ God counts that we are risen with Christ, so believe that today, knowing that yo
     :width: 200px
 
 
-God Sees You ...
-================
+God Sees You...
+===============
 ... **As If You’d Never Sinned**
 
 *You will tread our sins beneath your feet; you will throw them into the depths of the ocean!* - Micah 7:19
@@ -1266,6 +1308,7 @@ We are “accepted in the Beloved” (Ephesians 1:6 KJV). We are “complete in 
 
 God Cares For You
 =================
+
 *Are not two sparrows sold for a penny? Yet not one of them will fall to the ground apart from the will of your Father. And even the very hairs of your head are all numbered. So don't be afraid; you are worth more than many sparrows.* - Matthew 10:29–31
 
 Some people don’t pray, because after all, does God really care? In this world alone, there are six billion people. Is God like the old woman who lived in a shoe, who had so many children, she knew not what to do? No!
@@ -1286,8 +1329,8 @@ Does God care? He cares for every detail. God counts the hairs of our head. God 
     :width: 200px
 
 
-God’s Grace Surpasses ...
-=========================
+God’s Grace Surpasses...
+========================
 ... **All Our Hopes**
 
 *God ... raised us up with Christ ... in order that in the coming ages He might show the incomparable riches of His grace, expressed in His kindness to us in Christ Jesus.* - Ephesians 2:4–7, NIV
@@ -1310,6 +1353,7 @@ Now remember the starving prodigal son in his tattered clothes, with his almost 
 
 That’s Grace!
 =============
+
 *For the grace of God has been revealed, bringing salvation to all people.* - Titus 2:11
 
     *“God so loved the world that He gave His one and only Son ... Not . . . to condemn the world, but to save the world through Him.”* - John 3:16-17
@@ -1370,8 +1414,8 @@ The very shape of the Cross suggests the length, the breadth, the depth and the 
     :width: 200px
 
 
-You Are Not Under Law ...
-=========================
+You Are Not Under Law...
+========================
 ... **But Under Grace**
 
 *For sin shall no longer be your master, because you are not under the law, but under grace.* - Romans 6:14
@@ -1388,8 +1432,8 @@ The justification I have received covers my past, present, and future (See John 
     :width: 200px
 
 
-There Will Be Many ...
-======================
+There Will Be Many...
+=====================
 ... **Surprises in Heaven**
  
 *If You, Lord, should mark iniquities, O Lord, who could stand?* - Psalm 130:3, NKJV
@@ -1410,8 +1454,8 @@ The salvation of many is going to be an absolute surprise to all of the rest of 
     :width: 200px
 
 
-God Adds His Grace ...
-======================
+God Adds His Grace...
+=====================
 ... **to our Infirmities**
 
 *My grace is sufficient for you, for my power is made perfect in weakness.* - 2 Corinthians 12:9, NIV
@@ -1434,8 +1478,8 @@ That is not easy to do. I hate weaknesses; I detest them. But God knows better. 
     :width: 200px
 
 
-Have the Verdict ...
-====================
+Have the Verdict...
+===================
 ... **of the Last Judgment: Today**
 
 *By grace you have been saved, through faith –  and this not from yourselves, it is the gift of God – not by works, so that no one can boast.* - Ephesians 2:8-9, NIV
@@ -1461,8 +1505,8 @@ The believer looks for comfort only to Christ’s gift of righteousness. When th
     :width: 200px
 
 
-You Are A Winner ...
-====================
+You Are A Winner...
+===================
 ... **Through Christ**
 
 *In all these things we are more than conquerors through him who loved us.* - Romans 8:37, NIV
@@ -1487,8 +1531,8 @@ Even when discussing warfare Paul does not depart from his chief theme: Christ. 
     :width: 200px
 
 
-Let Christ’s Love ...
-=====================
+Let Christ’s Love...
+====================
 ... **Transform You**
 
 *We, who with unveiled faces all contemplate the Lord's glory, are being transformed into his likeness with ever-increasing glory, which comes from the Lord, who is the Spirit.* - 2 Corinthians 3:18, NIV
@@ -1515,6 +1559,7 @@ In the face of even colossal enticements, we victoriously cry, "I don't want the
 
 Grace Brings Us Joy
 ===================
+
 *The joy of the Lord is your strength.* - Nehemiah 8:10 KJV
 
 Christ told many stories about parties. He told only one, a mini-parable, about a funeral (Matthew 11:17). Similarly, the Old Testament ordered many feasts, but only one fast. That was the Day of Atonement (Leviticus 16:29–31).
@@ -1629,8 +1674,8 @@ Love is always the essence of God's message to humanity, even in the forgotten b
     :width: 200px
 
 
-How Hosea Teaches Us ...
-========================
+How Hosea Teaches Us...
+=======================
 ... **About Grace**
 
 *Oh, how can I give you up, Israel? How can I let you go? ... My heart is torn within me, and my compassion overflows.* - Hosea 11:8, NLT
@@ -1668,6 +1713,24 @@ There could have been no grace whatsoever for us, if it were no for the fact tha
 - Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Christ’s Robe of...
+===================
+... **Righteousness is a Gift**
+
+*I delight greatly in the Lord; my soul rejoices in my God. For he has clothed me with garments of salvation and arrayed me in a robe of his righteousness.* - Isaiah 61:10, NIV
+
+Remember that at the Cross, Christ had a seamless garment. It was “woven in one piece, from top to bottom” (John 19:23). I'm glad it wasn't the other way, woven from bottom to top. That would have been satanic.
+
+The robe of Christ’s righteousness, woven on heaven’s loom, had to be woven from top to bottom. It is such a precious garment. The soldiers said, “Let’s not tear it” (John 19:24). Ah, my friend, you can’t rip up and tear the robe of Christ. You can’t say, “Well, God, accept my works, my holy life, and the 20 per cent that’s not so good, I’ll make up for that by taking 20 per cent from Christ’s righteousness.” You can’t do that.
+
+You have to take Christ’s righteousness as a whole robe. You have to say, "God, I don't have a stitch of righteousness to offer you. Everything I've ever done is tainted." Of course it is. Selfishness interweaves with everything we do. Our best works are tainted. You cannot offer Christ one stitch. You must take the garment whole.
+
+That's how the soldiers recognized the situation at Calvary. They knew they couldn't buy Christ’s robe; that's why they cast lots (John 19:24). Christ's righteousness can't be bought. It can only be received as a gift. – Des Ford
 
 
 Back to top of: :ref:`df-ForByGrace`
@@ -1675,49 +1738,12 @@ Back to top of: :ref:`df-ForByGrace`
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 .. image:: ../images/Flourish03.png
     :align: center
     :width: 300px
+
+
+
 
 .. _df-ChristOurSalvation:
 
@@ -1727,6 +1753,7 @@ Christ our Salvation
 
 Our Saviour
 ===========
+
 *What shall we say about such wonderful things as these? If God is for us, who can ever be against us?  Since he did not spare even his own Son but gave him up for us all, won’t he also give us everything else?* - Romans 8:31-32
 
 Many unhappy Christians look upon Christ, first, as their example. Only second do they look upon him as their Saviour. That is upending things, turning them on their head. Which of us is like Jesus?
@@ -1747,6 +1774,7 @@ Because Jesus came first and foremost to be our Saviour, we can rest assured in 
 
 Our Representative
 ==================
+
 *We are convinced that one died for all, and therefore all died* - 2 Corinthians 5:14
 
 When our Lord Jesus Christ was baptised, he was baptised for the whole world. He confessed for the whole world. He was penitent for the whole world. Everything our Lord did was representative. There is not a private act of Christ’s in the book. Everything he did has an infinite significance and an infinite depth. The essence of the gospel is that it represents him as representing the world.
@@ -1769,6 +1797,7 @@ Never forget. You died on the cross of Calvary in your representative, Jesus. �
 
 What Kept Jesus on the Cross
 ============================
+
 *Let Christ, the king of Israel come down from the cross, that we may see and believe.* - Mark 15:32
 
 When we combine the testimony of all the Gospels, we discover that Christ was not only mocked by the passersby and the mob around the cross, but by the chief priests, the elders, the scribes, the Pharisees, the soldiers and the thieves.
@@ -1789,7 +1818,8 @@ What Jesus did, he did out of his perfect love. Will you accept his perfect love
 
 Jesus Will Not Give You Up
 ==========================
-*…his compassions never fail. They are new every morning; great is your faithfulness.* – Lamentations 3:22
+
+*...his compassions never fail. They are new every morning; great is your faithfulness.* – Lamentations 3:22
 
 The story of the Last Supper, recorded in John 13 begins with the Lord washing the feet of the Twelve, not the eleven.
 
@@ -1811,6 +1841,7 @@ If Christ could plead with someone so set on evil as Judas, the traitor of the T
 
 You Can Trust a Weeping Saviour
 ===============================
+
 *When he saw the crowds, he had compassion on them because they were confused and helpless, like sheep without a shepherd.* - Matthew 9:16, NLB
  
 Only twice in the Gospels are we told that Jesus wept. During his sufferings there is no record of a groan or a single trickling tear. All his laments are for others—for us.
@@ -1835,6 +1866,7 @@ Here Christ shows us the heart of God and the essence of his gospel—love for t
 
 Retractions
 ===========
+
 *The grass withers, the flower fades, but the word of our God will stand  forever.* - Isaiah 40:8
 
 The wise will change their minds, but fools never do.
@@ -1845,15 +1877,13 @@ You see, truth is a testing thing, and to open your mouth is a dangerous venture
 
 On another occasion a woman anointed Jesus' head. He said,
 
-    *"I tell you the truth, wherever the gospel is preached throughout the world, what she has done will also be told, in memory of her"* - Mark 14:9, NIV
+    *"I tell you the truth, wherever the gospel is preached throughout the world, what she has done will also be told, in memory of her."* - Mark 14:9, NIV
 
 The Apostle John illustrates the universality of this statement when he says,
 
-    "And the house was filled with the fragrance of the perfume" - John 12:3
+    "And the house was filled with the fragrance of the perfume." - John 12:3
     
-This symbolizes that when the beautiful gift of God's love should be broken on Calvary, the fragrance would fill the universe as the fragrance and aroma of that jar filled the house.
-
-How did Jesus know that "What this woman has done will go out with the gospel like a fragrance to the whole world"? How did he know? No one else has ever been able to see the future like this.
+This symbolizes that when the beautiful gift of God's love should be broken on Calvary, the fragrance would fill the universe as the fragrance and aroma of that jar filled the house. How did Jesus know that "What this woman has done will go out with the gospel like a fragrance to the whole world"? How did he know? No one else has ever been able to see the future like this.
 
 I love biographies. I've read hundreds of them. But there's no parallel to anything like this anywhere. – Des Ford
 
@@ -1865,13 +1895,14 @@ I love biographies. I've read hundreds of them. But there's no parallel to anyth
 
 Words to Live By
 ================
+
 *Heaven and earth will pass away, but my words will never pass away.* - Matthew 24:35
 
 This is a prediction that could have come only from the lips of someone insane, or from — God! Consider the contrast: heaven and earth versus sounds thrown into the air. The most permanent is to be dissolved, and the most transitory will be perpetuated. This is the very opposite of what human wisdom would predict. And who said it? A peasant in little Palestine.
 
 This was a peasant who had none of the things we use to perpetuate our words. He had no television, no radio and no printing press. Yet twenty centuries have been filled with those words of his.
 
-We use his words at times of birth and death, amid sorrow and joy. They strengthen the weak and encourage the toiler. They give hope to the penitent sinner. Kings and princes, rulers of empires, and garbage collectors and street sweepers, scientists and physicians, university professors and newly arrived students, old and young, the living and the dying—all cherish them and live by them.
+We use his words at times of birth and death, amid sorrow and joy. They strengthen the weak and encourage the toiler. They give hope to the penitent sinner. Kings and princes, rulers of empires, and garbage collectors and street sweepers, scientists and physicians, university professors and newly arrived students, old and young, the living and the dying — all cherish them and live by them.
 
 Christ’s words have no parallel in all of history. Men are influenced by Moses, by Paul and by the great figures of history, but none of these have been loved as Christ has been loved. Millions today would gladly die for him because they have found in him the key to life. – Des Ford
 
@@ -1883,6 +1914,7 @@ Christ’s words have no parallel in all of history. Men are influenced by Moses
 
 The Heart of the Matter
 =======================
+
 *“But what about you?” he asked. “Who do you say I am?”* - Matthew15:16
 
 When you are discussing the truthfulness of Christianity, never center on secondaries. Go to the heart of the matter, the issue of Christ: Who was Christ?
@@ -1907,8 +1939,30 @@ If you claim to be a Christian but your religion doesn't make you more like Jesu
     :width: 200px
 
 
+Christianity is Christ
+======================
+
+*"I have come so that they may have life and have it in abundance."* - John 10:10, CSB
+
+No other religion has its founder at its heart as does Christianity; for Christianity is Christ, and Christ is Christianity. Jesus is so unique that he could not have been invented.
+ 
+There are people who believe that what we have in the New Testament about Jesus was put together, or invented, by the early church. It didn't come from the historical Jesus. Genius never yet came out of a committee. If Moses had been a committee, Israel would still be in Egypt.
+
+It would take the genius of Christ to invent the New Testament Christ. The profundity of the teachings of Jesus, and their uniqueness, make it quite impossible for a committee of people in the first century to have invented them, especially after there had been a complete lack of such wonders in all previous generations. The idea is fanciful and ridiculous.
+
+Imagine seeing a huge anchor chain coming out of the hold of a ship. You see one iron link after another, in unbroken succession. Suddenly, marvel of marvels, the last link is a golden one! That's the way it is with the chain of human beings down through the ages. Suddenly, after all the iron links, a golden one is the Christ. He was so different and so distinct.
+
+What committee could have invented him? – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
 The Amazing Claims of Jesus
 ===========================
+
 *These claims are valid even though I make them about myself. For I know where I came from and where I am going, but you don't know this about me.* - John 8:14, NLT
 
 The New Testament states that when Jesus came, he claimed to be God (John 8:58, compare with Exodus 3:14). Jesus claimed that all the angels belonged to him. (Matthew 25:31 CEV). Imagine someone claiming to own the angels! Jesus also claimed that all nature was his. (Mark 4:39 NIV). The wind and waves obeyed him!
@@ -1929,6 +1983,7 @@ Though the words of Christ may have been spoken by a Judean peasant, but because
 
 The Miraculous Word of Jesus
 ============================
+
 *Jesus of Nazareth was a man accredited by God to you by miracles, wonders and signs, which God did among you through Him, as you yourselves know.* - Acts 2:22
  
 The Gospel of John records seven miracles that Jesus performed. These illustrate the transforming power of Jesus in our lives.
@@ -1945,6 +2000,7 @@ The main point for each of us is that Christ’s transforming Word is as strong 
 
 Christ the Miracle Worker
 =========================
+
 *Jesus of Nazareth, a Man attested by God to you by miracles, wonders, and signs.* - Acts 2:22, NKJV
 
 Some Christians are embarrassed by the miracles of the New Testament. Instead, they should be thrilled!
@@ -1967,6 +2023,7 @@ You cannot separate the miracles from the story. They are always united. – Des
 
 Jesus Calms Your Storms
 =======================
+
 *What kind of man is this? Even the winds and the waves obey Him!* - Matthew 8:27
 
 Jesus’ miracle stilling the storm on the Sea of Galilee (Matthew 8) is also a parable of spiritual events.
@@ -1987,8 +2044,8 @@ Usually the inward storm of fear, doubt and bewilderment is worse than the outwa
     :width: 200px
 
 
-The Cross of Jesus ...
-======================
+The Cross of Jesus...
+=====================
 ... **can Guide Your Life**
 
 *And I, if I am lifted up from the earth, will draw all men to Myself.* - John 12:32, NASB
@@ -2013,6 +2070,7 @@ The Bible says:
 
 Jesus Shows Us the Love of God
 ==============================
+
 *This is how God showed His love among us: He sent His one and only Son into the world that we might live through Him.* - 1 John 4:9
  
 Very close to the end of his public ministry, Jesus speaks sad words to the Jerusalem that has rejected him:
@@ -2031,6 +2089,7 @@ What a beautiful picture Jesus gives us at the end of Matthew 23! When there is 
 
 He Loved Us First
 =================
+
 *To Him who loved us and washed us from our sins in His own blood, and has made us kings and priests to His God and Father, to Him be glory and dominion forever and ever. Amen.* - Revelation 1:5–6, NKJV
 
 I love the sequence of ideas here. God loved us while we were still in need of washing. God loved us and then he washed us. God didn't wash us clean and then love us. God didn't free us from bondage of idolatry and darkness, and then say "Okay, I can stand you now." He loved us first.
@@ -2053,6 +2112,7 @@ The Pharisees meant it as a rebuke and a devastating criticism, but the Holy Spi
 
 Jesus Washes Away Your Sin
 ==========================
+
 *Wash away all my iniquity and cleanse me from my sin.* - Psalm 51:2
 
 At the Last Supper, Jesus washed his disciples’ feet, showing them the full extent of his love.
@@ -2073,8 +2133,8 @@ To those who refuse to let Christ wash away their sin, He says,
     :width: 200px
 
 
-Jesus Gives You ...
-===================
+Jesus Gives You...
+==================
 ... **His Perfect Righteousness**
 
 *God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.* - 2 Corinthians 5:21
@@ -2093,6 +2153,7 @@ It’s not a matter of what we have, but whom we have. When Jesus comes into our
 
 Jesus Looks After You
 =====================
+
 *As a father has compassion on his children, so the Lord has compassion on those who fear Him; for He knows how we are formed, He remembers that we are dust.* - Psalm 103:13–14
 
 John chapter 17 records the prayer that Jesus prayed as the shadow of is crucifixion fell upon Him. The amazing thing about this prayer is that Jesus is looking forward to the Cross as the place where he will be exalted, where the Father will be glorified, and where salvation will be provided for the world.
@@ -2109,8 +2170,8 @@ Christ prays that the Father will look after and keep all who put their faith in
     :width: 200px
 
 
-Jesus Took Your Sin ...
-=======================
+Jesus Took Your Sin...
+======================
 ... **and Took Your Place**
 
 *"Father, if you are willing, take this cup from Me; yet not My will, but Yours be done."* - Luke 22:42
@@ -2131,8 +2192,8 @@ Because of Jesus’ love for you, he chose to be destroyed in your place. He wou
     :width: 200px
 
 
-Jesus Poured Out His Blood ...
-==============================
+Jesus Poured Out His Blood...
+=============================
 ... **For You**
 
 *"This is My blood of the covenant, which is poured out for many for the forgiveness of sins."* - Matthew 26:28
@@ -2153,6 +2214,7 @@ On the Cross, Jesus shed his blood for our salvation. He was "the blood of the c
 
 Believe in Christ and Live
 ==========================
+
 *I write this to you who believe in the name of the Son of God, that you may know that you have eternal life.* - 1 John 5:13, RSV
 
 Yes, we may know how we stand with God. In fact there's one whole book of the Bible devoted to it – the first epistle of John. The Greek word for "know" occurs in this epistle forty times, and seventy times in the Gospel of John.
@@ -2169,8 +2231,8 @@ If you've laid hold of Jesus as your Saviour, you have eternal life and know it.
     :width: 200px
 
 
-Christ Was Forsaken ...
-=======================
+Christ Was Forsaken...
+======================
 ... **That We Might Never Be**
 
 *I was young and now I am old, yet I have never seen the righteous forsaken.* - Psalm 37:25
@@ -2193,8 +2255,8 @@ Nightmares never last. Tunnels have their exits. Only those who live through the
     :width: 200px
 
 
-Jesus Was Rejected ...
-======================
+Jesus Was Rejected...
+=====================
 ... **So That You Would Be Accepted**
 
 *God ... chose to bring many children into glory. And it was only right that He should make Jesus, through His suffering, a perfect leader, fit to bring them into their salvation.* - Hebrews 2:10, NLT
@@ -2215,6 +2277,7 @@ Jesus was rejected so that we will be accepted. God separated himself from Jesus
 
 Choose Jesus Over Barabbas
 ==========================
+
 *He himself bore our sins in His body on the cross, so that we might die to sins and live for righteousness; “by His wounds you have been healed.”* - 1 Peter 2:24
 
 The crowd shouted that Pilate should release Barabbas and crucify Jesus. This choice was made because people yielded to human pressure rather than to truth and righteousness. The crowd yielded to the chief priests, and Pilate yielded to the crowd. No one yielded to God.
@@ -2229,8 +2292,8 @@ Here is the heart of the gospel. You and I are Barabbas – children of our eart
     :width: 200px
 
 
-Salvation is ...
-================
+Salvation is...
+===============
 ... **as Simple As A–B–C √**
 
 *“What must I do to be saved?” ... “Believe in the Lord Jesus, and you will be saved.”* - Acts 16:30–31
@@ -2265,6 +2328,7 @@ A-B-C. It's as simple as that. – Des Ford
 
 Jesus is the Good Samaritan
 ===========================
+
 *A Samaritan, as he traveled, came where the man was; and when he saw him, he took pity on him. He went to him and bandaged his wounds, pouring on oil and wine.* Luke - 10:33–34, NIV
 
 In the Parable of the Good Samaritan, it is the Samaritan who stops to help and minister to the dying man. Remember, in Luke's previous chapter, the Samaritan village would not receive Jesus. Now, in His story, Jesus is receiving the Samaritans. He makes a Samaritan the hero of His parable.
@@ -2285,8 +2349,8 @@ You see, religion is not enough, unless it's about Jesus. – Desmond Ford
     :width: 200px
 
 
-Jesus Died ...
-==============
+Jesus Died...
+=============
 ... **at the Place of the Skull**
 
 *Christ is the Head of the church, His body, of which He is the Saviour.* - Ephesians 5:23
@@ -2305,6 +2369,7 @@ The place of execution is further described as being “outside the gate” (Heb
 
 The Wounds of Jesus Bring Peace
 ===============================
+
 *Jesus came and stood among them and said, “Peace be with you!” After He said this, He showed them His hands and side.* - John 20:19–20
 
 Please note the meaning of Jesus’ first words to His disciples after His resurrection.
@@ -2324,6 +2389,7 @@ There is only one place of peace, and that's in the wounds of Jesus. – Des For
 
 Jesus: the Heart of Christianity
 ================================
+
 *Heaven and earth will pass away, but my Words will never pass away.* - Matthew 24:35
 
 Christ is the only person who ever lived who claimed to be God, and yet was considered sane by the best of His generation. His influence was greater than all other teachers.
@@ -2350,6 +2416,7 @@ The heart of Christianity is not a creed, but a person – Jesus Christ. – Des
 
 Jesus is Your King
 ==================
+
 *He is Lord of lords and King of kings, and those who are with Him are the called and chosen and faithful.* - Revelation 17:14
  
 At one point in Jesus’ trial, the leaders of Israel took him to Herod’s palace where the Roman Governor, Pilate was staying. They did not understand that by handing Jesus over to unbelievers, they, as a nation, were rejecting their Messiah and were offering him to the Gentiles.
@@ -2372,6 +2439,7 @@ Yes, Jesus was King of kings and Lord of lords. - Des Ford
 
 Jesus is God’s Unspeakable Gift
 ===============================
+
 *Thank God for his Son — his Gift too wonderful for words.* - 2 Corinthians 9:15, TLB
 
 A great king gave all his citizens an invitation to a royal banquet at the palace. For admission, the guests had to bring what they thought was the fairest flower that ever bloomed. The citizens thronged to the palace, but were turned away by the thousands. Only a few found entrance. Many brought the deadly nightshade of superstition. Others arrived flaunting poppies of denominational pride. Still others brought the hemlock of self-righteousness.
@@ -2392,6 +2460,7 @@ Let us make the best choice and sit at the Master's feet, keeping our eyes on hi
 
 Christ Is Our Peace
 ===================
+
 *As one man's trespass led to condemnation for all men, so one man's act of righteousness leads to acquittal and life for all men.* - Romans 5:18, RSV
 
 Humanity's need for meaning, guidance, forgiveness, and moral strength are provided for in the Christian Gospel, and nowhere else. Because of this, we should all make the Gospel first in our thinking and doing. Paul saw this and wrote:
@@ -2409,8 +2478,8 @@ Calvary is the “double cure” for sin. It takes away both sin's guilt and its
     :width: 200px
 
 
-The Story of Jesus ...
-======================
+The Story of Jesus...
+=====================
 ... **is the Story of the Church**
 
 *“I am the Alpha and the Omega,” says the Lord God, “who is, and who was, and who is to come, the Almighty.”* - Revelation 1:8, NIV
@@ -2431,6 +2500,7 @@ The scenes of the judgments of Christ, the unfairness, the false witnessing, the
 
 Jesus is Always With You
 ========================
+
 *I am with you always, even unto the end.* - Matthew 28:20 KJV
 
 These were Jesus’ last words to his church on earth. You may know that in the Greek (and in Hebrew also), ‘I am’ is the expression for ‘God.’ It means the ever-living Yahweh (or Jehovah).
@@ -2456,8 +2526,8 @@ The message, ‘Fear not’, is found 365 times in the Bible. You need not be af
     :width: 200px
 
 
-Christ is the Foundation ...
-============================
+Christ is the Foundation...
+===========================
 ... **of the Church**
 
 *I tell you that you are Peter, and on this rock I will build my church.* - Matthew 16:18, NIV
@@ -2480,6 +2550,7 @@ The very foundation of the Christian church is the truth about Christ. If Christ
 
 Jesus is Our Saviour
 ====================
+
 *“Who is this man?” they asked each other. “Even the wind and waves obey him!”* - Mark 4:41, NLT
 
 Who is this man Jesus that we should believe in him? The Man of the Cross is the true Adam, the true Moses, the true prophet, priest, and king. Everything in the Old Testament was written for him.
@@ -2507,6 +2578,7 @@ Who is this Man? He is our Saviour. – Des Ford
 
 Jesus is the Good Shepherd
 ==========================
+
 *I am the good shepherd. The good shepherd lays down his life for the sheep.* - John 10:11, NIV
 
 Seven individual shepherds are mentioned in the Bible. These seven shepherds are Abel, Jacob, Joseph, Moses, David, Christ, and ''the idol shepherd'' of Zechariah 11:16, 17 – a reference to the Antichrist. The other six shepherds are often seen as types of Christ, the Good Shepherd.
@@ -2527,8 +2599,8 @@ The good shepherds of the Bible all prefigure the One to be born who would not o
     :width: 200px
 
 
-The Gospel Writers ...
-======================
+The Gospel Writers...
+=====================
 ... **Tell Us of Jesus**
 
 *It is by the name of Jesus Christ of Nazareth, whom you crucified but whom God raised from the dead… Salvation is found in no one else, for there is no other name under heaven given to mankind by which we must be saved.* - Acts 4:10,12, NIV
@@ -2646,49 +2718,64 @@ The book of Revelation begins with a picture of the light of Jesus displacing th
 Consider also that the Lion of the Tribe of Judah is the Lamb. Isn't that amazing? Christ’s strength is seen through his sacrifice, and not by killing his enemies. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is Your Passover
+======================
+
+*Christ, our Passover lamb, has been sacrificed.* - 1 Corinthians 5:7, NIV
+
+Jesus and his disciples had come to Jerusalem to celebrate the Passover. He knew the time for his death had come, and he also knew there was a plot to arrest him.
+
+At the first Passover, God had rescued his people from slavery in Egypt. God had sent a series of plagues to encourage the Pharaoh to release his people. The final plague was the most terrible of all: the firstborn of every family was killed by the angel of death in the middle of the night. Only the firstborn of those who had smeared the blood of the sacrificed lamb on their doorposts was saved. God told them this was a picture of the salvation he would bring to every man, woman and child, but they did not understand.
+
+In the time of Jesus, most Jews, as they celebrated the Passover, looked forward to the time when God would rescue their nation from the Romans. The real meaning of the Passover was very different. Through the blood of the Lamb of God he would bring salvation to his people.  – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Real Meaning of Passover
+============================
+
+*When I see the blood, I will pass over you.* - Exodus 12:13, NIV
+
+Remember that first Passover in Egypt. God was about to rescue his people from slavery. But first, there was a final plague, the most terrible of all. The angel of death would visit every home in the land, and the firstborn of every family would die. God instructed Moses that each Hebrew family must sacrifice a lamb, and smear the blood on their doorposts. The angel of death passed over those homes, in a living picture of the salvation that Jesus’ sacrifice would bring to every man, woman and child. The Hebrews at the time did not understand, but one day the meaning would become clear.
+
+At the first Passover, the blood of the lamb on the doorpost was a sign of God’s protection. At the Cross, Jesus became the Lamb of God and died, not just to save one family or one nation, but everyone who has ever lived.
+
+The lamb was killed before the Children of Israel escaped from Egypt. This has meaning too. Jesus had to die before we could be rescued from sin. The Bible tells us that Jesus died for us, not after we’d told him we were sorry for our sins, but “while we were still sinners”. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Son Question
+================
+
+*Whoever has the Son has life; whoever does not have the Son of God does not have life.* - 1 John 5:12
+
+Jesus declares his Cross to be the judgment of this world (John 12:31). The cross divides the world into the saved and the lost and, thereby, prefigures the world’s last day.
+
+The darkness that engulfed the cross prefigured the last great Day of Judgment. The earthquake at the moment of Christ’s death when many dead were raised (Matthew 27:52) prefigured the final call to judgment. And there, on the cross, was the King-Judge high and lifted up.
+
+Christ was crucified between two thieves. He also divided the two thieves – one called on him; one cursed him. We are all thieves. The Bible says,
+
+    *There is no difference, for all have sinned and fall short of the glory of God.* Romans 3:22-23
+ 
+What makes the difference is my attitude towards the Man on the central cross. It’s not the sin question, but the Son question that counts.
+
+We are not saved by our goodness or lost by our badness. We are saved by our relationship to Christ. Are we in Christ or out of Christ? If our standing is “in Christ,” we are saved. If we are out of Christ, we are lost. That’s the meaning of the cross. – Des Ford
+
+
 Back to top of: :ref:`df-ChristOurSalvation`
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -2696,6 +2783,9 @@ Back to top of: :ref:`df-ChristOurSalvation`
 .. image:: ../images/Flourish03.png
     :align: center
     :width: 300px
+
+
+
 
 .. _df-ShouldWeLive:
 
@@ -2705,6 +2795,7 @@ How, then, Should We Live?
 
 Victors Over Temptation
 =======================
+
 *Get out of here, Satan,” Jesus told him. “For the Scriptures say, "You must worship the Lord your God and serve only him." Then the devil went away, and angels came and took care of Jesus.* - Matthew 4:10
 
 Christ’s temptation was not our temptation. The devil tempted Jesus about our Lord’s mission. We are never tempted to turn stones into bread, to jump down from temple pinnacles, to receive the kingdoms of the world. We are not Saviours of the world.
@@ -2723,6 +2814,7 @@ It’s wonderful to know Christ has defeated the devil. Looking to Christ we can
 
 No Need to be Afraid
 ====================
+
 *I am with you always, even unto the end.* - Matthew 28:20
 
 Literally, ‘I am with you always, even unto the end,’ is ‘I with you am all the days unto the end.’ All the days: the bad days, good days, blue days, daze days, all days. Jesus is not only with us, he is round about us. ‘With’ separates the ‘I’ and the ‘am.’ ‘I with you am.’ Jesus is round about us:
@@ -2745,13 +2837,13 @@ The message, ‘Fear not’, is found 365 times in the Bible. You need not be af
     :width: 200px
 
 
-In the World, Trouble ...
-=========================
+In the World, Trouble...
+========================
 ... **in Christ, Peace**
 
 *Do not let your heart be troubled; believe in God, believe also in Me.* - John 14:1, NASB
 
-The word "believe" is found approximately 100 times in this single book, the Gospel of John. Almost every one of the 21 chapters of John has the word "believe."
+The word "believe" is found approximately one-hundred times in this single book, the Gospel of John. Almost every one of the twenty-one chapters of John has the word "believe."
 
 "Let not your hearts be troubled." It's true that there is cancer. It's true there is death on the highway. It's true there is tragedy in the home. But Christ says, "Let not your hearts be troubled." Instead, believe.
 
@@ -2759,8 +2851,8 @@ Jesus says it in the imperative, and that's the way modern translations often re
 
 Our hearts will be troubled and they will be afraid if we let them. But if we look at what we have in Christ, our hearts need not be troubled even in this trouble-filled world. Jesus explains why:
 
-   *I have told you these things, so that in me you may have peace. In this world you will have trouble. But take heart! I have overcome the world* - John 16:33
- 
+    *"I have told you these things, so that in me you may have peace. In this world you will have trouble. But take heart! I have overcome the world."* - John 16:33
+
 While we are in the world, we will always have trouble. But Christ has overcome the world, and when we trust in his victory, we can have peace. In the world, trouble. In Christ, peace. – Des Ford
 
 
@@ -2771,15 +2863,16 @@ While we are in the world, we will always have trouble. But Christ has overcome 
 
 What The Animals Teach Us
 =========================
-Natural revelation shows the reasonableness of believing in a Creator. The Bible commands us to: 
 
-    *Ask the animals, and they will teach you* – Job 12:7
+*Ask the animals, and they will teach you.* – Job 12:7
 
-In Australia, we have a kind of cicada that stays underground for 17 years. One day you're walking through the bush and you hear a horrible clatter and racket! You know the cicadas have come up, but this is the crop from those that went down 17 years ago. After 17 years they've come up to fill the bush with a cacophony of life and vitality... after being buried for 17 years!
+Natural revelation shows the reasonableness of believing in a Creator. In Australia, we have a kind of cicada that stays underground for 17 years. One day you're walking through the bush and you hear a horrible clatter and racket! You know the cicadas have come up, but this is the crop from those that went down 17 years ago. After 17 years they've come up to fill the bush with a cacophony of life and vitality... after being buried for 17 years!
 
 Who doesn't know about the life of a caterpillar? At the prime of its life, it goes into its chrysalis tomb. A child stumbling upon that wrapped, apparently lifeless, form would say, "That's the end of that."
 
-But despite appearances, it's not the end. The time will unfailingly come when that chrysalis will open, and out of that tomb will come something beautiful. And that butterfly will do something it could never do before – fly! Before, it was earth-bound, as we are. One day we will travel at the speed of thought. One day we will be transformed, just like the butterfly. – Des Ford
+But despite appearances, it's not the end. The time will unfailingly come when that chrysalis will open, and out of that tomb will come something beautiful. And that butterfly will do something it could never do before – fly! 
+
+Before, it was earth-bound, as we are. One day we will travel at the speed of thought. One day we will be transformed, just like the butterfly. – Des Ford
 
 
 .. image:: ../images/Flourish02.png
@@ -2789,7 +2882,8 @@ But despite appearances, it's not the end. The time will unfailingly come when t
 
 God Is In This Place
 ====================
-*Surely the Lord is in this place… This is none other than the house of God, and this is the gate of heaven* - Genesis 28:16–17
+
+*Surely the Lord is in this place ... This is none other than the house of God, and this is the gate of heaven.* - Genesis 28:16–17
 
 The omnipresence of God doesn't mean that God is spread out thinly, as though there's a little slim sliver of divinity here, there and everywhere. The omnipresence of God means that God is fully present in every place.
 
@@ -2809,6 +2903,7 @@ So now you can say this about your kitchen, your bedroom, your workshop, your of
 
 You Can Get Through Suffering
 =============================
+
 *The God of all grace, who called you to His eternal glory in Christ, after you have suffered a little while, will Himself restore you and make you strong, firm and steadfast.* - 1 Peter 5:10
 
 Christ could stand the terrible pain because He knew God was there. He rested in the fatherhood of God. It is true that at one stage the agony of the guilt of the world was so terrible that He cried out, "My God, My God, why have You forsaken Me?"
@@ -2819,7 +2914,7 @@ Jesus suffered the agony of separation from God. Jesus endured hell qualitativel
 
 It is not wrong to ask, "Why?" Jesus cried, "Why?" And there will be times when we will ask the same question. But we must move on to, “Father, into your hands I commit my life.” If we can say, “My God,” in the midst of our pain, we will survive. If we can take hold of the God that seems to be thrusting us away we will survive.
 
-When we bring God into our darkest depths, it brings light upon us. – Desmond Ford
+When we bring God into our darkest depths, it brings light upon us. – Des Ford
 
 
 .. image:: ../images/Flourish02.png
@@ -2829,6 +2924,7 @@ When we bring God into our darkest depths, it brings light upon us. – Desmond 
 
 Christ Overcame Evil With Good
 ==============================
+
 *Do not be overcome by evil, but overcome evil with good.* - Romans 12:21
 
 We find our best lesson on tragedy in the Cross of Christ. The Cross itself is a symbol of pain, limitation, strain, hatred and rejection. Think of all the worst things involved in tragedy; they are all there at the Cross. Jesus is poised between heaven and earth to indicate He's rejected by both, but His arms are outstretched to indicate that He will continue to love us. What a lesson about pain and tragedy! Even when you feel forsaken by God, stretch out your arms with love. Overcome evil with good.
@@ -2845,6 +2941,7 @@ He could have come down and yet He couldn't have. He had the power to come down 
 
 Christ Gives Your Life Meaning
 ==============================
+
 *I am the way and the truth and the life.* - John 14:6
 
 Unless we are first clear as to the meaning of life, why we are here and where we are going, there is neither sense nor meaning for the sorrows of life. How you and I think of death makes all the difference to how we live. Only in Christ does human life find meaning. He did not idly say, 'I am ... the life' and 'I am ... the truth'. He is the truth about all things, including life and death. If we are to be raised from the dead as he was, we must live in the spirit that he lived.
@@ -2861,6 +2958,7 @@ Therefore, we own nothing. We are but stewards of the gifts of his grace, and al
 
 Choose The Right Thoughts
 =========================
+
 *The end of all things is near. Therefore be alert and of sober mind so that you may pray. Above all, love each other deeply, because love covers over a multitude of sins.* - 1 Peter 4:7–8
 
 Seeing life as a brief probationary period to prepare for the hereafter, places all things in right proportion. My eternal destiny and all I can influence should interest me more than all the temporary tinsel of human experience. Christ has suffered that we might have eternal happiness. Shall we be so demented as to neglect something so valuable?
@@ -2875,8 +2973,8 @@ When we do this, to crucify vain thoughts of pride, impurity, selfish ambition, 
     :width: 200px
 
 
-When It Seems God Isn't There ...
-=================================
+When It Seems God Isn't There...
+================================
 ... **He Is**
 
 *I am glad for your sake that I was not there.* - John 11:15
@@ -2901,8 +2999,8 @@ We see darkly, we stumble, and we wander in our pain. But when we see our God �
     :width: 200px
 
 
-God’s Kingdom ...
-=================
+God’s Kingdom...
+================
 ... **Is A Kingdom of Freedom**
 
 *Through Christ Jesus the law of the Spirit who gives life has set you free from the law of sin and death.* - Romans 8:2
@@ -2923,6 +3021,7 @@ When we really come to believe that God loves us, and that He loved us enough to
 
 Sin Does Not Rule In Your Life
 ==============================
+
 *For sin shall no longer be your master, because you are not under the law, but under grace.* - Romans 6:14
 
 The Christian sees in every transgression the nail and the spear that pierced Christ. Indeed, nothing less than the revelation of the wickedness of the human heart and the love of the divine One as given by the Cross could break the fascination of evil for depraved humanity. The gospel certainly does not make light of sin.
@@ -2939,6 +3038,7 @@ We are those who have died to sin; how can we live in it any longer? … For we 
 
 Jesus Teaches You to Forgive
 ============================
+
 *Father, forgive them, for they do not know what they are doing.* - Luke 23:34
 
 “Father, forgive them.” We do not begin to live until we shut the door on the past through forgiveness. And no one lives properly until they have experienced forgiveness themselves. Fortunately, it’s not hard to know when we have received forgiveness ourselves. Just as you can’t give money to someone else until you have received it yourself, so you cannot give forgiveness to anyone else until you have received it yourself.
@@ -2955,6 +3055,7 @@ Every relationship in life calls for forgiveness. There are no perfect wives, pe
 
 We Grow Towards Perfection
 ==========================
+
 *Consequently, just as one trespass resulted in condemnation for all people, so also one righteous act resulted in justification and life for all people. 19 For just as through the disobedience of the one man the many were made sinners, so also through the obedience of the one man the many will be made righteous.* - Romans 5:18
 
 The apostle Paul, in Romans 5:18 and 2 Corinthians 5:14, shows us that when Christ died, it was reckoned as though the whole wicked world died. Henceforth our debts are paid.
@@ -2971,8 +3072,8 @@ Romans 5:1–11 lists some of the aspects of the subjective experience of the be
     :width: 200px
 
 
-We Must Become ...
-==================
+We Must Become...
+=================
 ... **What We Already Are**
 
 *God ... raised us up together, and made us sit together in the heavenly places in Christ Jesus.* - Ephesians 2:6, NKJV
@@ -2991,8 +3092,8 @@ No one will ever perish while he or she depends upon the merits of Christ’s at
     :width: 200px
 
 
-As You Look To Jesus ...
-========================
+As You Look To Jesus...
+=======================
 ... **You Will Be Changed**
 
 *Looking unto Jesus the author and finisher of our faith* - Hebrews 12:2, NKJV
@@ -3015,6 +3116,7 @@ If the Christian continually keeps his sin and failures and mistakes in his mind
 
 What Prayer Is
 ==============
+
 *If you sinful people know how to give good gifts to your children, how much more will your heavenly Father give good gifts to those who ask him.* - Matthew 7:11, NLT
 
 If there is a loving heavenly Father – and we need not doubt that until rocks rush to form a Taj Mahal or computers without fingers or electricity can churn out a Bible – he would want to talk to us. Because talking must always be a two-way street, all the great characters of the Bible were praying people. The prophets, Abraham, Elijah, Jeremiah, and others - Samuel, Hannah, Peter, and Paul - were all praying people. No wonder then that the Bible talks about prayer 350 times.
@@ -3033,6 +3135,7 @@ Prayer is need finding a voice. It is slipping through an open door to find our 
 
 Prayer is the Key
 =================
+
 *Ask and it will be given to you; seek and you will find; knock and the door will be opened to you. For everyone who asks receives; the one who seeks finds; and to the one who knocks, the door will be opened.* - Matthew 7:7, 8
 
 Prayer is a primary fact of life. The belief that God exists has persisted with the human race throughout history, so it is natural for us to pray. Prayer is an expression that we are not self-sufficient, and that we are asking God to help us.
@@ -3051,8 +3154,55 @@ Prayer is the optic nerve of our spiritual nature. Why then, do some sever that 
     :width: 200px
 
 
+Prayer is our Key
+=================
+
+*This is the confidence we have in approaching God: that if we ask anything according to his will, he hears us.* - 1 John 5:14, NIV
+
+In the last century, the Lakota Indians built their homes on the mesas; those high and rocky tablelands with precipitous slopes. The Lakotas sought safety on the mesas because of their conflicts with other tribes and the constant raids. On the mesas they could easily defend themselves. They worked hard to bring soil to the top of the mesas. Some ravines held water. Soon there were crops and flowers. The Lakotas found what every human being is looking for: security.
+
+Prayer is the mesa of the human heart. People who deride prayer wrongly assume that they are self-sufficient in a world where microbes are stronger than human beings.
+
+What then, is prayer? Prayer is need finding a voice. Prayer is embarrassment looking for relief. It is slipping through an open door to find our best friend in the universe – the door that God has opened. Prayer is spilling out the heart. Prayer is telling God what upsets us, and what concerns us. It is telling God when we are grateful for his help, when we need his guidance, when we want his forgiveness, and when we've been stupid and fearful and anxious.
+
+Prayer is the key in the hand of faith to unlock heaven's storehouse, in which are stored all the treasures of omnipotence. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Best Way to Pray
+====================
+
+*Enoch walked with God.* - Genesis 5:24
+
+When God talks to us through his Word, the Bible, we talk back. This is what we call prayer.
+
+Funnily enough, we have a strange idea about prayer. We think that prayer is for when we get up in the morning and when we lie down at night. Well, that's fine for starters.
+
+The best way to pray is to follow the example of Jesus. In Gethsemane. His prayers were short, pungent-but frequent. That's the best  kind of prayer life. Nehemiah, while handing up the cup to his king prayed. (See Nehemiah 1:5-11; 2:4;4:9; 6:9.) Abraham was overwhelmed with a problem, and prayed, 
+
+    *"Oh, that Ishmael might live before you"* (See Genesis 17:18.)
+
+This is real praying.
+
+Real prayer isn’t remembering all the relatives and all the neighbours. The way you should pray for people is to pray for them when the Lord puts them upon your heart. As soon as you have a worry about them, commit them to God.
+
+We must learn to pray about everything. I pray when I collect mail, and I pray as I answer all those letters. I'm no example of perfect prayer. I'm simply suggesting this as one way to go. For 50 years I've prayed as I've walked or as I've jogged.
+
+A healthy prayer life is constant communion with God. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
 Be Careful With What You Desire
 ===============================
+
 *Take delight in the Lord, and he will give you the desires of your heart.* - Psalm 37:4 NIV
 
 The main hindrance to prayer are the things we value and desire, because every desire is a prayer.
@@ -3071,8 +3221,8 @@ Suppose you could pray only once every 25 years. How would you pray then? Of cou
     :width: 200px
 
 
-Prayer Is Not ...
-=================
+Prayer Is Not...
+================
 ... **Just Spending Time On Your Knees**
 
 *Keep on praying...* - Romans 12:12, NLT
@@ -3101,6 +3251,7 @@ Prayer goes both ways. The person who is talking all the time never learns anyth
 
 Jesus Invites Us To Laugh
 =========================
+
 *God ... has anointed you with the oil of gladness.* - Hebrews 1:9, NKJV
 
 We think of our Lord as a man of sorrows and acquainted with grief and this is correct. We would never find comfort in a man who knew only laughter.
@@ -3121,8 +3272,8 @@ Next time you enjoy a really good laugh, remember that it can also be a symbol o
     :width: 200px
 
 
-There’s Always Something ...
-============================
+There’s Always Something...
+===========================
 ... **To Be Thankful For**
 
 *Give thanks in all circumstances.* - 1 Thessalonians 5:18
@@ -3143,6 +3294,7 @@ Watching the rain, one woman said, “It will settle the dust. Another woman sai
 
 God Teaches You To Trust Him
 ============================
+
 *The LORD ... guarded him as the apple of his eye, like an eagle that stirs up its nest and hovers over its young, that spreads its wings to catch them.* - Deuteronomy 32:10,11 NIV
 
 Our Heavenly Father in his great love uses all sorts of methods to teach us to trust in him, and distrust in ourselves. Keep in mind they always go together, and are the fruit of the moving of the Divine Spirit. One way that God endeavours to teach us to distrust ourselves and to trust in him is the medium of change.
@@ -3159,8 +3311,8 @@ Who is equal to these challenges? No one. Nobody has the strength, nor the wisdo
     :width: 200px
 
 
-Jesus Has The Answer ...
-========================
+Jesus Has The Answer...
+=======================
 ... **For The Sadness of Life**
 
 *The grass withers and the flowers fall, but the word of our God endures forever.* - Isaiah 40:8
@@ -3183,6 +3335,7 @@ The joy of the Gospel is that God’s love outlasts everything else. – Des For
 
 You Must “Trust and Obey”
 =========================
+
 *Lord Almighty, blessed is the one who trusts in you.* - Psalm 84:12 NIV
 
 It's the difficult situations that make us into the type of people who have learned to trust and obey regardless of the circumstances. The Christian isn't promised a life free from pressures and anxieties. He is promised the assurance that God will not forsake him, because God will be with him amidst all of life's trials. The Christian is promised that ultimately he will see that all things have worked together for good, and that neither death, nor life, nor things present, nor things to come, nor anything can separate him from the love of God in Christ Jesus our Lord. To be able to claim God as your Father is far, far better than to be the king of a great country or the wealthiest person in creation.
@@ -3199,6 +3352,7 @@ There are those who call for an analysis of the cause and effect relationship be
 
 Temptation is Not Sin
 =====================
+
 *The temptations in your life are no different from what others experience. And God is faithful. He will not allow the temptation to be more than you can stand.* - 1 Corinthians 10:13 NLT
 
 Oscar Wilde said, "I can resist everything except temptation." We have to do better than Oscar. God had one Son without sin, but he has never had one son or daughter without temptation.
@@ -3221,6 +3375,7 @@ You and I are so self-centred by nature, that although the whole world aches for
 
 Pain is a Teacher
 =================
+
 *Consider it pure joy ... whenever you face trials of many kinds, because you know that the testing of your faith produces perseverance.*  - James 1:2–3 NIV
 
 Shadows compose half the beauty of the world, and in every human life it is the same. You never see a great painting without shadows. Malcolm Muggeridge said, "The only ultimate tragedy is to so settle down in this world that you feel at home in it." That is the only ultimate tragedy.
@@ -3239,6 +3394,7 @@ Black Friday became Good Friday, and this is the greatest parable of all: that t
 
 Suffering Comes Before Fruit
 ============================
+
 *The people walking in darkness have seen a great light; on those living in the land of deep darkness a light has dawned.* - Isaiah 9:2 NIV
 
 There is no escaping the shadows. Without the shadows there would be no beauty. You ask most parents about their greatest joy and their greatest sorrows, they usually respond with one word: kids.
@@ -3260,6 +3416,7 @@ It is wonderfully comforting to know that God is in control of the pain. He was 
 
 The Two Truths of Christianity
 ==============================
+
 *What are mere mortals that you should think about them, human beings that you should care for them?* - Psalm 8:4, NLT
 
 All our questions about the universe and existence are part of our main question: “What is man?” Who or what is this being that asks the questions?
@@ -3280,6 +3437,7 @@ It is important for us to know both of these truths. It is equally dangerous for
 
 Be Grateful For The Storms
 ==========================
+
 *Blessed are the poor in spirit, for theirs is the kingdom of heaven. Blessed are those who mourn, for they will be comforted.* - Matthew 5:4, NIV
 
 To come to God, I must be stripped of my self-sufficiency. The blessed poor in spirit know they do not have in themselves what the righteous law demands.
@@ -3300,6 +3458,7 @@ Jesus challenges us with the astonishing idea: “Blessed are you if you have pr
 
 You Need Never Walk Alone
 =========================
+
 *All authority in heaven and on earth has been given to me. Go therefore and make disciples of all nations… and lo, I am with you always, to the close of the age.* - Matthew 28: 18-20 RSV
 
 We need God. Everything you and I see is transient. Everything we feel, taste, touch – everything is temporary.
@@ -3330,6 +3489,7 @@ When our Lord Jesus rose from the dead, he breathed upon his disciples and said,
 
 How Not To Burn Out
 ===================
+
 *By faith [Moses] left Egypt, not fearing the king’s anger; he persevered because he saw him who is invisible.* - Hebrews 11:27, NIV
 
 Everything in life depends on what you look at. This is much easier to preach than to practice. But Scripture is trying to tell us we can persevere when we see him who is invisible.
@@ -3350,6 +3510,7 @@ Any old bush will do. It’s not the bush that’s important. It’s the God who
 
 Make Gratitude a Habit
 ======================
+
 *And whatever you do, whether in word or deed, do it all in the name of the Lord Jesus, giving thanks to God the Father through him.* - Colossians 3:17, NIV
 
 I can give you a sure recipe for how to be miserable twenty-four hours a day: think of yourself. People are miserable because they focus on themselves; because they’re not grateful.
@@ -3368,8 +3529,8 @@ Just think about it: it takes the omnipotent love of God just to cope with our s
     :width: 200px
 
 
-There is a Remedy ...
-=====================
+There is a Remedy...
+====================
 ... **For Everyone’s Disease**
 
 *All have sinned and come short of the glory of God.* - Romans 3:23, NIV
@@ -3390,6 +3551,7 @@ If we don’t know the disease, we will never appreciate the remedy and I submit
 
 Receive Jesus
 =============
+
 *As many as received him, to them he gave the right to become children of God, to those who believe in his name.* - John 1:12, NKJV
 
 John’s Gospel is the deepest, most beautiful, most wonderful book in the Bible. John presents Jesus as God (John 1:1,3,10,14,18). John's Gospel is also the Gospel that calls for a decision.
@@ -3410,8 +3572,8 @@ But John’s Gospel is not some abstract, theological book, because it asks us a
     :width: 200px
 
 
-The Sermon on the Mount ...
-===========================
+The Sermon on the Mount...
+==========================
 ... **Is Our Agenda**
 
 *Blessed are those who hunger and thirst for righteousness, for they will be filled.* - Matthew 5:6, NIV
@@ -3432,8 +3594,8 @@ The Sermon on the Mount is not a creed. It's an agenda. It is not telling us wha
     :width: 200px
 
 
-In the Kingdom ...
-==================
+In the Kingdom...
+=================
 ... **Happiness Grows Out of What We Are**
 
 *Jesus saw the crowds.* - Matthew 5:1, NIV
@@ -3454,8 +3616,8 @@ Jesus was saying, "Happy are the poor in spirit. Happy are the merciful. Happy a
     :width: 200px
 
 
-The Sermon on the Mount ...
-===========================
+The Sermon on the Mount...
+==========================
 ... **Teaches You How to Live**
 
 *Whatever you want men to do to you, do also to them.* - Matthew 7:12, NKJV
@@ -3482,8 +3644,8 @@ Not tomorrow's bread, but this day's. – Des Ford
     :width: 200px
 
 
-In the Kingdom ...
-==================
+In the Kingdom...
+=================
 ... **We Call Out Satan’s Lies**
 
 *Then I heard a loud voice in heaven say: “Now have come the salvation and the power and the kingdom of our God, and the authority of his Messiah.”* - Revelation 12:10, NIV
@@ -3508,8 +3670,8 @@ When your conscience echoes the devil’s accusations, that’s when you must fl
     :width: 200px
 
 
-The Kingdom of Heaven ...
-=========================
+The Kingdom of Heaven...
+========================
 ... **is For the Needy**
 
 *For Christ’s sake, I delight in weaknesses ... For when I am weak, then I am strong.* - 2 Corinthians 12:10, NIV
@@ -3552,6 +3714,7 @@ The main gift God offers to all, this Christmas season, is the everlasting Gospe
 
 Put God First
 =============
+
 *Seek first the kingdom of God and His righteousness, and all these things shall be added to you.* = Matthew 6:33, NKJV
 
 The Bible is full of the 80-20 principle. This principle says that 20 percent of what you do gives you 80 percent of the results. The Bible is continually stressing how we need to prioritise and see things with a true sense of proportion.
@@ -3754,8 +3917,8 @@ Remember that it’s **easier to be saved than to be lost**. The Spirit of God p
     :width: 200px
 
 
-Turn to Jesus ...
-=================
+Turn to Jesus...
+================
 ... **in the Midst of Trouble**
 
 *Affliction does not come from the dust, nor does trouble spring from the ground; Yet man is born to trouble, as the sparks fly upward. But as for me, I would seek God, and to God I would commit my cause — who does great things, and unsearchable, marvellous things without number.* - Job 5:6–9, NKJV
@@ -3781,8 +3944,8 @@ However, the third and most important thing in this text is that it tells us tha
     :width: 200px
 
 
-You Have a Passport ...
-=======================
+You Have a Passport...
+======================
 ... **to the Kingdom**
 
 *The Son of Man must be lifted up.* - John 3:14
@@ -3847,8 +4010,8 @@ God can equip you for the most important thing in your life: how to influence pe
     :width: 200px
 
 
-Heaven Begins ...
-=================
+Heaven Begins...
+================
 ... **When You Believe in God’s Love**
 
 *This corruptible must put on incorruption, and this mortal must put on immortality.* - 1 Corinthians 15:53, NKJV
@@ -3871,8 +4034,8 @@ So, believe in God's love for you. That’s the beginning of heaven. – Des For
     :width: 200px
 
 
-Store Up Your Treasure ...
-==========================
+Store Up Your Treasure...
+=========================
 ... **in Heaven**
 
 *For you know the grace of our Lord Jesus Christ, that though he was rich, yet for your sake he became poor, so that you through his poverty might become rich.* - 2 Corinthians 8:9, NIV
@@ -3957,43 +4120,140 @@ The person to whom eternity is real is the person who finds it easiest to live i
 However worried you are at this moment, God is bending over you in love. Trust him. Blessed is he whose mind stops at God. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God Sees You in Love
+====================
+
+*Blessed is the one who trusts in the Lord.* - Jeremiah 17:7, NIV
+
+When God is real to us, we will trust him with both our past and our future. Then we will be able to live for the present. We will look to him for wisdom and strength. Only those who see the invisible can see the impossible.
+
+Do you remember those famous words found in Genesis 16:13: "You are the God who sees me”? Many people understand these words to mean that we had better watch what we do, for God will punish us. But that’s not what they mean.
+
+These words were first spoken by a poor woman who had been banished from home and family and was wandering aimlessly in the desert. Suddenly, God spoke to her, and she responded with gladness and confidence, "You are the God who sees me.”
+
+However worried you are at this moment, God is bending over you in love. You have been purchased by the blood of his Son. All of life's ups-and-downs are meant to prepare you to live with him for eternity.
+
+Say to yourself often: "You are the God Who Sees Me.” This means he sees all our problems and difficulties.
+
+He not only sees, he cares, and he can and will do something about it. Trust him. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Promises of God Are Yours
+=============================
+
+*He who did not spare his own Son, but gave him up for us all—how will he not also, along with him, graciously give us all things?* - Romans 8:32, NIV
+
+The promises of Scripture revealing the love of God are the very best protection against unnecessary worry. God has promised us everything we need, not everything we want. We ourselves are so foolish. If our slightest wish was met with an immediate fulfilment, we would destroy ourselves.
+ 
+It's going through the hard places and the hard situations that make us into the kind of people who have learned to trust and obey regardless of the circumstances. There is an old proverb that says, "The north wind made the Vikings", and in contrast another proverb says, "Constant sunshine makes a desert."
+ 
+The Christian isn't promised a life free from the pressures and anxieties that cause him to worry. He is promised the assurance that God will not abandon him, and the certainty that God will be with him amidst all of life's trials. The Christian is promised that ultimately, he will see that all things have worked together for good, and that neither death, nor life, nor things present, nor things to come, nor anything at all can separate him from the love of God in Christ Jesus our Lord.
+
+To be able to claim this promise is far, far better than to be the king of a great country or the wealthiest person in creation. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Share the Perfume...
+====================
+... **of God’s Love**
+
+*"I tell you, her many sins have been forgiven—as her great love has shown."* - Luke 7:47, NIV
+
+Jesus said: 
+
+    *[God] “has anointed me to preach good news to the poor; he has sent me to proclaim freedom for the prisoners and recovery of sight for the blind and to release the oppressed.”* Luke 4:18
+
+That was his work. He went about doing good and healing all who were oppressed by Satan. There were whole villages where there was not a moan of sickness in any house, for Jesus had passed through them and healed all their sick. Love, mercy, and compassion were revealed in every act of his life.
+
+The chief message of Jesus’ life is his death and resurrection. It tells us that a suffering God is at the heart of Christianity. Only Christians worship a God who was wounded for us.
+ 
+A wonderfully appropriate event occurs at the beginning of the last week of Jesus’ life. Mary Magdalene breaks an alabaster jar of expensive perfume and anoints her Lord. Here is a symbol of the Gospel: Jesus’ body that would be broken on the Cross—God’s extravagant gift to the world. As the perfume of Mary’s gift filled the house, so the perfume of God’s love went out from the Cross to fill the whole world. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Barabbas Experience
+=======================
+
+*"Greater love has no one than this: to lay down one’s life for one’s friends."* - John 15:13, NIV
+
+How did Barabbas feel? He was condemned to death and there was nothing he could do to save himself. Then, unexpectedly, he was told: “You are free. Someone else has taken your place.”
+ 
+Perhaps Barabbas followed the procession to the place of crucifixion to get a look at the man who had taken his place. Perhaps he stayed to watch and became convinced that God had truly died in his place. Perhaps Barabbas became one of Jesus’ disciples that day.
+ 
+Barabbas represents every person who has ever lived. God’s law has condemned us and we are helpless to redeem ourselves. But Jesus has taken our place and has suffered as we deserve to.
+ 
+Suppose Barabbas hadn’t believed the messenger. Suppose he had refused the offer of his freedom, thinking it was just a cruel joke. Or suppose he said to the messenger, “When I become a better person, I will leave this prison.”
+ 
+Impossible? No, not impossible. Many people every day treat the Gospel’s invitation like this. But Barabbas wasn’t so stupid. God grant that we may not be, either. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Your Most Important Choice
+==========================
+
+*What shall I do with Jesus who is called Christ?* - Matthew 27:22, NASB
+
+Pilate decided to offer the people a choice. He could either release that dangerous murderer, Barabbas, or he could release Jesus: the people could choose. But the chief priests whipped up the crowd to demand that Barabbas be released instead of Jesus.
+
+Pilate was puzzled. “But if I release Barabbas, what shall I do with this man you call your king?”
+
+The crowd shouted back, “Crucify him!”
+
+Finally, Jesus was condemned to death. Then began the terrible walk out of the city, carrying the cross on which he was to die. Jesus was exhausted, and stumbled under his heavy load. The soldiers pulled a man from the crowd and forced him to carry Jesus’ cross through the streets of Jerusalem. His name was Simon, and he came from a place called Cyrene in North Africa. What a burden he carried! We are told that this had a profound effect on the rest of his life. Simon is a symbol of the millions of people who have been touched, and whose lives have been completely changed by the Cross of Jesus.
+
+When Pilate’s wife begged him not to have anything to do with Jesus, she was asking the impossible. We cannot ignore or avoid Jesus. We must choose. We must either cry, “Crucify him”, or we crown him Lord of all. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Your Past Is Not Lost
+=====================
+
+*"Gather up the fragments that remain, so that nothing is lost."* - John 6:12, NKJV
+
+The past is not lost. The Bible says,
+
+    *All things are yours.* 1 Corinthians 3:21
+
+Things in Scripture about the past have meaning for us now, and the things about the future also have meaning for us now.
+ 
+One day there will be a new heaven, a new earth, and a new creation (see Revelation 21:1–5). Everything will be made new for you, as Scripture says:
+
+    *Therefore, if anyone is in Christ, he is a new creation; the old has gone, the new has come!* 2 Corinthians 5:17 NIV
+ 
+There’s going to be a tree of life (Revelation 22:2). My friend, if you’ve got Jesus, you’ve got the tree of life now. The tree of life is symbolic of Jesus, from whom all life comes.
+ 
+There's going to be a river of life (Revelation 22:1). If you believe in Jesus, you have that river now (see John 4:14), because to have Jesus is to have the Holy Spirit.
+ 
+All things are yours now, in Christ. Gather up the fragments so that nothing be lost. – Des Ford
+
+
 Back to top of: :ref:`df-ShouldWeLive`
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -4002,6 +4262,10 @@ Back to top of: :ref:`df-ShouldWeLive`
     :align: center
     :width: 300px
 
+
+
+
+
 .. _df-OurFaithComes:
 
 Our Faith comes from Him
@@ -4009,7 +4273,8 @@ Our Faith comes from Him
 
 The Faith I Want
 ================
-*He gives strength to the weary and increases the power of the weak* - Isaiah 29:40
+
+*He gives strength to the weary and increases the power of the weak.* - Isaiah 29:40
 
 I want a faith that will keep me steady when every cell of my mind is shrieking, "Why?" I want a faith that keeps me strong when every part of my body is resonating with pain. I want a faith that keeps me faithful when temptation sucks at me like a hurricane on a mountaintop. I want a faith that's bigger than the towering questions that plague me as I swim in the tempestuous sea of existence.
 
@@ -4027,6 +4292,7 @@ God is a great embarrassment to us. If I want to lie, God says, "Speak the truth
 
 You Have Eternity to Win
 ========================
+
 *The love of Christ compels us, because we are convinced that one died for all, and therefore all died.* - 2 Corinthians. 5:14
 
 The Frenchman, Blaise Pascal [1623-62], was a genius. He invented and sold the first calculating machine, a forerunner of the computer. He also planned the public transportation system for Paris. Pascal had a wager for unbelievers:
@@ -4037,7 +4303,9 @@ The believer has everything to win and nothing to lose by believing. Of course, 
 
 The reason we become Christians is because the love of Christ compels us (see 2 Corinthians 5:14 KJV). But it doesn't hurt to remember that the believer has heaven, eternity, joy, meaning, and reason – all these glorious things to gain. The unbeliever has everything to lose, and nothing to win.
 
-The thief on the cross took up Pascal’s wager. This man, at the end of a life that had been filled with evil, was suddenly confronted with God's incarnate love. He called out to Jesus, "Lord, remember me." And Grace answered him, “Not only will you be remembered, but you will be with me in Paradise.” – Des Ford
+The thief on the cross took up Pascal’s wager. This man, at the end of a life that had been filled with evil, was suddenly confronted with God's incarnate love. He called out to Jesus, "Lord, remember me."
+
+And Grace answered him, “Not only will you be remembered, but you will be with me in Paradise.” – Des Ford
 
 
 .. image:: ../images/Flourish02.png
@@ -4047,6 +4315,7 @@ The thief on the cross took up Pascal’s wager. This man, at the end of a life 
 
 The Secret of Peace
 ===================
+
 *Grace and peace to you from Him who is, and who was, and who is to come.* - Revelation 1:4
 
 Please note the order. You can't have peace without grace. You always get grace before you get peace.
@@ -4069,6 +4338,7 @@ When they saw the wounds in His hands and His feet, they heard His words, “pea
 
 You Can Steal Paradise!
 =======================
+
 *You will be with Me in Paradise.* - Luke 23:43
 
 The Bible records only one deathbed repentance: only one, so no one would despair, but only one, so no one would presume. Who could imagine in a thousand years a better way of illustrating Christ's Gospel: grace and love triumphs over sin and death in the face of true repentance. This man with blood on his hands, who had nourished hatred and violence in his heart, is transformed by the magnetic appeal of the One suffering in his stead. Now this thief makes the biggest “steal” of his life – Paradise! And the Owner of Paradise rejoices to let him do it!
@@ -4089,6 +4359,7 @@ This the thief had, and consequently, Paradise was his. – Des Ford
 
 We Must Be Born Again
 =====================
+
 *Except a man be born from above, he cannot see the kingdom of God.* - John 3:3
 
 Christ said these words to a nocturnal visitor two thousand years ago. On another occasions He expressed the same thought in the following way:
@@ -4109,6 +4380,7 @@ Which of us would claim a character as lofty as his or a mind as enlightened as 
 
 You Matter to God
 =================
+
 *For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.* - John 3:16, KJV
 
 Jesus died for your sins. You should know this, for the Bible is full of the wonderful word “whosoever.”
@@ -4131,8 +4403,30 @@ He remembered Peter. – Des Ford
     :width: 200px
 
 
-True Knowledge of God ...
-=========================
+Christ Gives You...
+===================
+... **Everlasting Life**
+
+*"Everyone who lives and believes in me will never die."* - John 11:26
+
+The one thing the four Gospels have in common is a Christ who must not only die, but also rise again. In the New Testament, Christ's resurrection is part of the Cross event. They belong together, as the old spiritual says, “It’s Friday; Sunday's A-Comin'!”
+
+Jesus was condemned for our sins, but was raised for our justification. The Christian learns not to look at things that are seen, but things that are unseen. Things that are unseen get progressively better. I tell you, eternity is a lot sweeter the older you get.
+
+The great and glorious future resurrection must never be lost sight of. We have its beginnings now in the gift of the Holy Spirit. The Spirit energises us with faith, hope and love, but that is only the first fruits of a glory that is to come.
+
+It's a wonderful thing to know, dear friend, that now you are a Christian, now you are in Christ, you are immortal. You may sleep in the grave, but only until the great Resurrection Day.
+
+In Christ you have the verdict of the Last Judgment. In him you have everlasting life. In Christ you have received the Holy Spirit, and Christ says that through the Spirit, because we are in him, he is in us. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+True Knowledge of God...
+========================
 ... **Changes Everything!**
 
 *Let the one who boasts, boast about this: that they have the understanding to know me, that I am the Lord, who exercises kindness, justice and righteousness on earth, for in these I delight.* - Jeremiah 9:24
@@ -4167,6 +4461,7 @@ Should we not strive to have a more accurate, biblical picture of our Maker, Red
 
 God’s Presence is With You
 ==========================
+
 *Where can I go from your spirit? Where can I flee from your presence? If I go up to the heavens you are there; if I make my bed in the depths, you are there. If I rise on the wings of the dawn, if I settle on the far side of the sea, even there your hand will guide me; your right hand will hold me fast.* - Psalm 139:7-9
 
 The Bible speaks of this reality throughout its pages:
@@ -4194,8 +4489,8 @@ To practice the presence of God continually is to bring rest of soul, peace of m
     :width: 200px
 
 
-Reach Out to Jesus ...
-======================
+Reach Out to Jesus...
+=====================
 ... **With the Touch of Faith**
 
 *Daughter, your faith has made you well. Go in peace, and be healed.* - Mark 5:34, NKJV
@@ -4220,6 +4515,7 @@ No one can eat and drink for you. You must eat and drink for yourself. It must b
 
 Jesus Takes Us Apart From The Crowd
 ===================================
+
 *After Jesus had taken him aside from the crowd, he stuck his fingers in the man's ears. Then he spit and put it on the man's tongue. Jesus looked up toward heaven, and with a groan he said "Effatha!" which means "Open up!" At once the man could hear, and he had no more trouble talking clearly.* - Mark 7:33-35 CEV
 
 The personal touch of Jesus is everywhere in the Gospel of Mark. In chapter seven we have a typical story of how Jesus served.
@@ -4242,6 +4538,7 @@ Jesus took the man aside from the crowd, touched him, looked to heaven, "and wit
 
 Saving Faith Can Be Yours
 =========================
+
 *My grace is sufficient for you, for My strength is made perfect in weakness.* - 2 Corinthians 12:9 NKJV
 
 Scripture promises that God will show us the path of life. Unless he does, we will inevitably wander in hopeless circles among the tombs of the dead, soon to lie down beside them in their darkness. We need the light of the world (John 8:12; 1:9) to shine upon us every moment, as the Psalmist says, 
@@ -4262,6 +4559,7 @@ Saving faith grasps the merits of the Divine-human sacrifice for the sins of the
 
 Faith Is Not The Greatest Virtue
 ================================
+
 *Three things will last forever — faith, hope and love — and the greatest of these is love.* - 1 Corinthians 13:13, NLT
 
 Although faith is the key to all the treasures of this life and the next, although it is the first of all the virtues, it is certainly not the greatest. It is great in that it leads to the greater. For faith is both self-emptying and receiving of the Divine Spirit. And when the Divine Spirit comes, faith becomes perfect in love. Thus, though faith is the first, love is always the best.
@@ -4276,8 +4574,8 @@ The world becomes our Father's school, and all the other students are our brothe
     :width: 200px
 
 
-God Has Told You ...
-====================
+God Has Told You...
+===================
 ... **Who The Real Enemy Is**
 
 *All have sinned and fall short of the glory of God.* - Romans 3:23 NIV
@@ -4296,6 +4594,7 @@ Our real evil is within. A wise man once declared that he had had more trouble w
 
 Always Be Praying
 =================
+
 *Because He has inclined His ear to me, Therefore I will call upon Him as long as I live.* - Psalm 116:2, NKJV
 
 Funnily enough, we have a strange idea about prayer. We think that prayer is for when we get up in the morning and before we go to bed at night.
@@ -4336,6 +4635,7 @@ Believe your beliefs and doubt your doubts. Never doubt your beliefs and believe
 
 All Things Work Together For Good
 =================================
+
 *We know that all things work together for good to those who love God, to those who are the called according to His purpose.* - Romans 8:28, NKJV
 
 The testimony of Scripture is that all things work together for good to those who love God. We have a Christ who gathers up the fragments so that nothing is lost. Without suffering there would be no sympathy; without hardship there would be no hardihood; without pain there would be no patience. There is no way to holiness except through hell.
@@ -4362,6 +4662,7 @@ We’ve got to learn to dance Adam’s dance backward. He disbelieved the Word o
 
 Christ’s All-Conquering Church
 ==============================
+
 *Upon this rock I will build my church; and the gates of hell shall not prevail against it.* - Matthew 16:18 KJV
 
 What a prediction! What a claim! Here we are almost twenty centuries later, and about one in three people around the globe claims membership in Christ’s church. The picture in Matthew 16:18 is that of an advancing kingdom of God converging on the gates of hell and death, error and bloody persecution. The victorious army is clothed in righteousness. Its banner is the Spirit, lifting high the blessed Gospel of Christ.
@@ -4382,6 +4683,7 @@ In Christ, you are a member of that true church against which the gates of hell 
 
 The Humble Church
 =================
+
 *The foolishness of God is wiser than human wisdom, and the weakness of God is stronger than human strength.* - 1 Corinthians 1:25, NIV
 
 When the true Christ came, He came in disguise. They expected a conqueror, but He came as a carpenter; they expected a king but He came as a peasant; they expected one who was lofty, but He came in lowly guise; they expected one clothed with glory but He came clothed with humility; they anticipated their Messiah would proclaim law, but when He did come He proclaimed love.
@@ -4400,6 +4702,7 @@ The true gospel is ever crucified between two thieving false gospels. Those pere
 
 The Spirit Builds You Up
 ========================
+
 *In building the temple, only blocks dressed at the quarry were used, and no hammer, chisel or any other iron tool was heard at the temple site while it was being built.* - 1 Kings 6:7, NIV
 
 Solomon’s life was marked by glory, riches, wisdom, and peace. Do you know what the name “Solomon” means? “Solomon” means “peaceful.” Solomon is thought of as the wisest man who ever lived, the richest man who ever lived, and he had a glorious kingdom (1 Kings 5:4)
@@ -4416,8 +4719,8 @@ Christ talked about the Spirit, likening him to the wind. The wind blows where i
     :width: 200px
 
 
-You Can Tell God’s True Church ...
-==================================
+You Can Tell God’s True Church...
+=================================
 ... **From The False**
 
 *We know that we have passed from death to life, because we love the brethren.* - 1 John 3:14
@@ -4441,6 +4744,7 @@ Des Ford
 
 Peace Be With You!
 ==================
+
 *Peace I leave with you; my peace I give to you. Not as the world gives do I give to you. Let not your hearts be troubled, neither let them be afraid.* - John 14:27, ESV
 
 Twice, Jesus said to his disciples, “Peace be with you!”
@@ -4457,8 +4761,8 @@ Pray that the Spirit of God himself will fill you and help you bring salvation t
     :width: 200px
 
 
-The Greatest Truth ...
-======================
+The Greatest Truth...
+=====================
 ... **of Christianity**
 
 *We believe ... and we know that this is indeed the Christ, the Saviour of the world.* - John 4:42, NKJV
@@ -4496,8 +4800,8 @@ And doubts remain. We cry with the father in the New Testament: “Lord, I belie
     :width: 200px
     
 
-What Gives the Bible ...
-========================
+What Gives the Bible...
+=======================
 ... **its Authority?**
 
 *God, who at various times and in various ways spoke in time past to the fathers by the prophets, has in these last days spoken to us by His Son.* - Hebrews 1:1–2, NKJV
@@ -4516,8 +4820,8 @@ The reason why so many through the centuries have sensed an authority in the Bib
     :width: 200px
     
 
-The New Testament ...
-=====================
+The New Testament...
+====================
 ... **Was Not Made Up**
 
 *Many people have set out to write accounts about the events that have been fulfilled among us. They used the eyewitness reports circulating among us from the early disciples.* - Luke 1:1–2, NLT
@@ -4574,8 +4878,27 @@ We will not be motivated to choose good and turn away from evil unless we know t
     :width: 200px
     
 
-You Can Go to the King ...
-==========================
+Believe That God Is
+===================
+
+*Anyone who comes to him must believe that he exists and that he rewards those who earnestly seek him.* - Hebrews 11:6
+
+If you believe in the gospel and the infinite love of God, you have everything to gain and nothing to lose. If you refuse to believe, you have everything to lose and nothing to gain.
+
+Every decision we make rests upon our belief about the origin and meaning of the universe, either implicitly or explicitly. In the gamble of life we are forced to wager, one choice offers everything, and the other offers nothing. Try to live one day as an atheist, beginning by looking into a mirror and saying, “You meaningless clot!” Live that day, believing nothing has value or meaning. It will not work.
+
+But instead, begin believing that God is, and that God is love, and that he has died for us, and that every moment has meaning, and that we are surrounded by his merciful providences, and that will work out gloriously.
+
+It is our privilege to encourage others who have not yet committed to their Saviour, to share our joy. You will find assurance of the reality of God and his love to the same extent that you participate in shedding that love abroad. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+    
+
+You Can Go to the King...
+=========================
 ... **Without Fear**
 
 *I will go to the king, even though it is against the law. And if I perish, I perish.* - Esther 4:16, NIV
@@ -4747,7 +5070,46 @@ In Paul’s discussion on acceptance and in his discussion on justification, “
 The gospel is the good news about the death and resurrection of Christ. Through faith in Christ, his perfect righteousness is imputed to us, and God accepts us **now**. Sanctification — or working in cooperation with the Holy Spirit — is the fruit of the gospel. – Des Ford
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
 
+
+Even Imperfect People Can Pray
+==============================
+
+*There is now no condemnation for those who are in Christ Jesus.* - Romans 8:1, NIV
+
+There is no condemnation for the true Christian, even when that Christian fails. God does not cast us out because of our failures. We are erring children, and we will be until Jesus comes again. God doesn’t ask for our behaviour be perfect, but that it be our greatest desire to please him in everything.
+
+Let me illustrate this with the father and his blind daughter. While he is away from home on business, the father receives a letter from his daughter. Because she is blind, the letter is brief, and all smudged. But the father kisses the letter. He loves the letter. It isn’t perfect, but it is a genuine expression of her love.
+ 
+Provided that God has our hearts, and our efforts in doing his will are sincere and wholehearted, our stumblings do not decrease God's love for us. Our failures don’t affect, in the slightest, our prestigious status before God in Christ, even when we seem down and out.
+ 
+Who has the right to pray in the name of Christ? Everyone who has accepted the love of God in Jesus. Everyone who has learnt that "God loves me enough to die for me."
+ 
+Once you believe that God loves you, you are in God's family. That gives you the right to pray in Christ's name. – Des Ford
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Let Prayer Become Natural
+=========================
+
+*Cast all your anxiety on him because he cares for you.* - 1 Peter 5:7, NIV
+
+Because our faith is so imperfect, even though we pray about a problem, it often comes back again. Even the apostle Paul prayed three times about a physical problem.
+
+    *"Three times I pleaded with the Lord to take it away from me."* 2 Corinthians 12:8, NIV
+
+I suspect that when Paul said, "three times," he meant that he had prayed about the issue repeatedly. The wise thing to do is hand your problem over to God every time the problem worries you. Theoretically, once you pray about an issue, that should be enough. If you had such perfect faith that after praying just once, you weren’t worried about it, then once would be enough. But if you continue to worry about the problem, then you must continue to pray about it.
+
+I think that prayer is a science and takes a long time to learn. It is a growing experience. None of us has fully arrived and never will. We must contemplate the great Christian truths of human sinfulness, the love and providence of God, and the working of the Spirit. 
+
+The more we do that, the more they will become more real to us than the material things we actually touch and see. Then it will become natural to pray. – Des Ford
 
 
 Back to top of: :ref:`df-OurFaithComes`

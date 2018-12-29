@@ -9,6 +9,7 @@ The Gospel
 
 What's Wrong with the Gospel?
 =============================
+
 *... Jesus Christ of Nazareth ... crucified but whom God raised from the dead ... salvation is found in no one else, for there is no other name under heaven given to mankind by which we must be saved.* - Acts 4:10,12
 
 There must be something wrong with the Gospel. Otherwise, why would people keep adding to it all the time? Why do would so many try to reshape it to suit their own ideas?
@@ -27,6 +28,7 @@ Listen to the words of this crucified and risen One about how this salvation is 
 
 To surrender to this Christ and to this message is to be right in the heart of God. Commit yourself again to the Good News of Jesus today. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -34,18 +36,19 @@ To surrender to this Christ and to this message is to be right in the heart of G
 
 God is For Us
 =============
-*…indeed I am for you* – Ezekiel 36:9, NKJV
- 
+
+*...indeed I am for you.* – Ezekiel 36:9, NKJV
+
 God spoke these words to the people of Judah, whose city and temple had been destroyed by a cruel foreign nation. He spoke them through Ezekiel, a man who had been deported into slavery.
- 
+
 Even when all the evidence seemed to be to the contrary, God says, “I am for you.”
- 
+
 Perhaps you are struggling through a terrible divorce. Maybe you are grieving the loss of someone whom you love. Maybe your body is losing the battle against a damaging disease. Maybe you have been betrayed by those who should have cared for you. Perhaps you have just been hurt too much.
- 
+
 Or maybe the guilt of your sins and the failures of your past are simply overwhelming you. You may be tempted to think that God is not there.
- 
+
 God has a message for you today. “I am for you,” he says. Even if you can’t see it, “I am for you.” “I am for you – even if you are against me – I am still for you. This is the very heart of God’s Good News for us.
- 
+
 One of my favourite verses from the Old Testament is::
  
     For the mountains shall depart
@@ -56,6 +59,51 @@ One of my favourite verses from the Old Testament is::
  
 Hold on to that truth in your struggle today – God is for you, not against you. – Eliezer Gonzalez
 
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+God is For You
+==============
+
+*For, behold, I am for you...* - Ezekiel 36:9, KJV
+
+Have you ever felt like God isn’t fully on your side? Maybe after hearing a fiery sermon about sin, or the judgment, or about hell. Or maybe because that’s just what you’ve thought all your life: “If God exists, then he’s certainly not on my side!”
+
+Here is the central message of Christianity: God is for you, even when you’re not for him. This is just as radical today as it was back then.
+
+The Bible is full of God’s assurances that he is for us, and not against us. In my life, what keeps bringing me back to the reality of how God treats me, is how Jesus treated those who felt themselves to be far from God, but who came to him in their need. I think of people like the Samaritan woman at the well, Matthew and Zacchaeus the tax collectors, the woman who had suffered from the bleeding disorder for fourteen years, and the woman who was thrown at Jesus’ feet after having been caught in the very act of adultery. I’m thinking of myself.
+
+God is always implacably and passionately for you (Mark 2:17). That's what Jesus came to tell us, and to show you by the way he lived. And of course,
+
+If God is for us, who can be against us? (Romans 8:31). - Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus is Never Too Busy for You           
+===============================
+
+*"Why are you sleeping? ... Get up and pray so that you will not fall into temptation."* - Luke 22:45-46, NIV
+
+On the night that he was betrayed, Jesus was praying in the Garden of Gethsemane with such intensity that his sweat was like great drops of blood. Jesus was praying the most intense prayer of his life. It was then, that the Bible tells us that he found his disciples sleeping, and he again reminded them to pray.
+
+How wonderful it is to see, that even at this most difficult of his life, our Lord had time for his disciples! He was concerned for them, because he knew that they needed to be ready for what was to come.
+
+Jesus is never too busy for you. Even if your world is falling apart, he still has time for you.
+
+You might think that Jesus is too busy for you today. After all, he has a universe to run (Heb 1:3). And then there are all those people around the world who pray and need his help: people who you think are probably much worthier than you.
+
+But Jesus is never too busy for you.
+
+Even if your world is falling apart, and even if you’re asleep and disobedient like the disciples, he still has time for you. If he wasn’t too busy at Gethsemane, then you can be certain that he’ll never be too busy for you. – Eliezer Gonzalez
+
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -63,17 +111,23 @@ Hold on to that truth in your struggle today – God is for you, not against you
 
 The Absurdity of the Cross
 ==========================
-*The message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God* - 1 Corinthians 1:18
- 
-The Cross of Jesus is totally absurd to the thinking of the world. Paul calls it “foolishness.” The idea of the Cross was ridiculously counter-cultural in the first century, and it remains so today.
- 
-No one could have invented the Christian message of the Cross if it weren’t true. Most people ignore the questions the Cross raises, but for those who choose to face them, they are questions that demand answers:
 
-Why didn’t Jesus do something to avoid being crucified?
-How did people come to believe, from the beginning, that Jesus could both be God, and be killed by crucifixion?
-How did people come to believe from the beginning, that Jesus had risen from the dead, something that had never previously been believed of any man in the Graeco-Roman culture?
-How did the Christian message not only survive, but explode upon the world, given that it was so absurd according to the acceptable beliefs of the day?
+*The message of the cross is foolishness to those who are perishing, but to us who are being saved it is the power of God.* - 1 Corinthians 1:18
+ 
+The Cross of Jesus is totally absurd to the thinking of the world. Paul calls it “foolishness.” The idea of the Cross was ridiculously counter-cultural in the first century, and it remains so today. No one could have invented the Christian message of the Cross if it weren’t true.
+
+Most people ignore the questions the Cross raises, but for those who choose to face them, they are questions that demand answers:
+
+    * Why didn’t Jesus do something to avoid being crucified?
+
+    * How did people come to believe, from the beginning, that Jesus could both be God, and be killed by crucifixion?
+
+    * How did people come to believe from the beginning, that Jesus had risen from the dead, something that had never previously been believed of any man in the Graeco-Roman culture?
+
+    * How did the Christian message not only survive, but explode upon the world, given that it was so absurd according to the acceptable beliefs of the day?
+
 These questions can only be rationally answered by accepting the message of the Cross: that it is the power of God for our salvation. Nothing explains the Cross except God’s personal intervention to save the world from sin. – Eliezer Gonzalez
+
 
 .. image:: ../images/Flourish02.png
     :align: center
@@ -98,6 +152,7 @@ But Jesus stayed on the cross. However, Jesus didn’t stay on the cross because
  
 "Nails could never have kept Him on the cross, but Christ’s love for you is stronger than nails." – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -105,6 +160,7 @@ But Jesus stayed on the cross. However, Jesus didn’t stay on the cross because
 
 You Are Accepted By Christ
 ==========================
+
 *Christ has accepted you.* - Romans 15:7, CEV
  
 People everywhere, and society in general, bombard us continually with subtle – and not-so-subtle – messages telling us that we aren’t acceptable, that we aren’t okay. To be in a relationship where you’re loved, just as we are, is to be in a place of safety, and more than that, a place where you can really know who you are, and where you can feel free to grow.
@@ -115,6 +171,7 @@ That’s why, just as Jesus accepted the unacceptable, the Bible assures us that
  
 You have nothing to prove that Jesus Christ hasn’t already proven. - Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -122,6 +179,7 @@ You have nothing to prove that Jesus Christ hasn’t already proven. - Eliezer G
 
 Do It For Love
 ==============
+
 *He saved us, not because of the righteous things we had done, but because of His mercy. He washed away our sins, giving us a new birth and new life through the Holy Spirit.* - Titus 3:5, NLT
  
 I have a fear of rollercoasters. Before I got married, my mother-in-law told me that if I wanted to marry her daughter, I had to get on one of those rides. It wasn’t even a full-sized rollercoaster, but it really terrified me. It seemed impossible. But I did it for love.
@@ -134,6 +192,7 @@ He’ll do the same for you. You need Jesus to heal you, and He’ll make you cl
 
 Christ has already done what you could never do, so whatever you do now, you do for love. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -141,6 +200,7 @@ Christ has already done what you could never do, so whatever you do now, you do 
 
 Jesus Will Never Forget You
 ===========================
+
 *Can a mother forget her nursing child? Can she feel no love for the child she has borne? But even if that were possible, I would not forget you!* - Isaiah 45:19, NLT
 
 I was waiting for an elevator, and when it arrived, the doors opened and a family came out. First dad, and then mum, and they seemed to be in a bit of a hurry.
@@ -155,6 +215,7 @@ It’s true, although it’s difficult to understand, that sometimes mothers for
  
 So if you feel forgotten in this crazy world, remember that God will never, ever forget you. Every relationship on earth can fail, but never the love of God for you. He guaranteed that at Calvary. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -162,6 +223,7 @@ So if you feel forgotten in this crazy world, remember that God will never, ever
 
 Christ is Your Representative
 =============================
+
 *He is the atoning sacrifice for our sins, and not only for ours but also for the sins of the whole world.* - 1 John 2:2
 
 There are some things for which you just need a representative. I had to go to court once, and I needed a good representative.
@@ -174,6 +236,7 @@ In other words, you have died to sin on the cross in the person of your represen
  
 Christ, our Representative, has done what we could never do for ourselves, and has opened wide the gates of heaven so we might go in. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -181,6 +244,7 @@ Christ, our Representative, has done what we could never do for ourselves, and h
 
 Jesus Was Heaven’s Gift
 =======================
+
 *They saw the child with His mother Mary, and they bowed down and worshiped Him. Then they opened their treasures and presented Him with gifts of gold, frankincense and myrrh.* - Matthew 2:11
 
 Unheralded, the Saviour of the World came down to us. In the quiet of the Bethlehem night, He arrived. Though heaven emptied itself as it bestowed its greatest Treasure, no room was found for Him in the inn. Though angels sang, no fanfare announced His glorious arrival.
@@ -227,6 +291,7 @@ There are no Terms and Conditions here, because Jesus met them all on our behalf
 
 Salvation is a Done Deal
 ========================
+
 *And that is what some of you were. But you were washed, you were sanctified, you were justified in the name of the Lord Jesus Christ and by the Spirit of our God.* - 1 Corinthians 6:10
 
 Two thousand years ago all your sins were forgiven, you were given a free pass into the Kingdom of God, and you were granted eternal life. The New Testament tells you this again and again, including in 1 Corinthians 6:10. It is a gift you simply receive today.
@@ -499,8 +564,8 @@ Back to top of: :ref:`eg-TheGospel`
 Forgiveness
 ***********
 
-The Man Who Wouldn't ...
-========================
+The Man Who Wouldn't...
+=======================
 ... **Accept Forgiveness**
 
 *The servant’s master took pity on him, canceled the debt and let him go* - Matthew 18:27
@@ -523,6 +588,7 @@ The way we forgive others is a reflection of whether we have accepted the forgiv
 
 Have you? Who do you need to forgive whole-heartedly today? – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -530,13 +596,14 @@ Have you? Who do you need to forgive whole-heartedly today? – Eliezer Gonzalez
 
 Don't Stub Your Toe!
 ====================
+
 One of the most excruciating every-day pains one can feel is when you stub your toe against something. Although it’s been a while since I did that last, I still remember the agony. You’d be crazy to kick that thing again in the hope that the pain would go away, wouldn’t you?
  
 This reminds me of the expression “to kick against the pricks” from the Bible.
  
 “To kick against the pricks” was a familiar proverb at the time when the New Testament of the Bible was written. It is commonly associated with the story of the conversion of the apostle Paul. If you don’t know it, it’s because most modern translations don’t have it; however it is reflected in the King James Version of Acts 9:5:
  
-   *And he said, Who art thou, Lord? And the Lord said, 'I am Jesus whom thou persecutest: it is hard for thee to kick against the pricks.'*
+    *And he said, Who art thou, Lord? And the Lord said, 'I am Jesus whom thou persecutest: it is hard for thee to kick against the pricks.'*
 
 This is a reference to how farmers in ancient times would use an ox goad to prod the oxen when plowing. The goad was a stick with a pointed piece of iron on its tip. The sharp iron was “the prick.” If the ox kicked against the goad, that was what it meant to “kick against the prick.” The more the ox rebelled, the more that it suffered.
  
@@ -547,6 +614,7 @@ I have found this to be true in my life. The truth about the Gospel is that I ha
 Jesus challenges you also. He says to you, “It’s hard to kick against the pricks, isn’t it?"
 Perhaps it’s time to stop and rest. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -554,6 +622,7 @@ Perhaps it’s time to stop and rest. – Eliezer Gonzalez
 
 Bookkeeping Christianity
 ========================
+
 *He who has the Son has life; he who does not have the Son does not have life* – 1 John 5:12
 
 Christianity can get complicated if you allow it. Take, for example, the questions, "If once you accepted the grace and forgiveness of Christ into your life, and then you reject salvation, for what sins will you perish? Will they include the sins that were once forgiven?"
@@ -568,6 +637,7 @@ This is the most important question you will ever be asked: Do you have the Son?
 
 If you do, then let’s stop doing bookkeeping and let’s start living today! – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -575,13 +645,18 @@ If you do, then let’s stop doing bookkeeping and let’s start living today! �
 
 God’s Undo Button
 =================
-I’ve experienced the sheer panic – that sudden sinking feeling in your gut – when you’ve pressed “send” on an email that should never have been sent. Oops!
- 
-If only there had been a way to recall it! We’ve probably all been there and done that at some stage, wishing for an “undo” button.
+
+*God made him who had no sin to be sin for us, so that in him we might become the righteousness of God.* - 2 Corinthians 5:21
+
+I’ve experienced the sheer panic – that sudden sinking feeling in your gut – when you’ve pressed “send” on an email that should never have been sent. Oops! If only there had been a way to recall it! We’ve probably all been there and done that at some stage, wishing for an “undo” button.
  
 But God has a far better “undo” option than anything on your computer.
  
-At the Cross, the one who was God With Us cried out, *“Father, forgive them, for they know not what they do”* (Luke 23:34). With those words, forgiveness and perfection of life flowed out from Calvary over the whole world, to be freely received by all those who would accept the gift. That’s God’s “undo” option.
+At the Cross, the one who was God With Us cried out: 
+
+    *“Father, forgive them, for they know not what they do.”* Luke 23:34
+
+With those words, forgiveness and perfection of life flowed out from Calvary over the whole world, to be freely received by all those who would accept the gift. That’s God’s “undo” option.
  
 There’s a lot of things I wish could just go away in my life – choices I’ve made, and things I’ve said and done. I wish I could have lived a better life. But the Bible says that:
 
@@ -597,6 +672,7 @@ Because of Jesus, all your yesterdays can be undone, and all your tomorrows can 
 
 In the Centre of God’s Love
 ===========================
+
 *I have loved you, my people, with an everlasting love. With unfailing love I have drawn you to myself* – Jeremiah 31:3
  
 I’m fortunate that I’ve never been in one of those huge cyclones that hit in North Queensland, or in one of those tornadoes in the US. The closest I’ve ever come was when I was a kid growing up in Sydney, and I remember a mini-cyclone that hit the city.
@@ -643,6 +719,7 @@ For me, the fact that the goodness of the character of God is so far beyond what
 
 The Best Spoiler Ever
 =====================
+
 *Take heart! I have overcome the world.* - John 16:33
 
 Don’t you hate it when someone spoils the end of a movie for you! Especially when there’s a massive twist right at the end. There’s nothing worse! That’s why spoilers usually come with a warning, because people would rather not know them.
@@ -685,6 +762,7 @@ And that’s the moral of Jesus’ story: in the Kingdom of Heaven, forgiven peo
 
 God is Not a Heavenly Bookkeeper
 ================================
+
 *While he was still a long way off, his father saw him coming. Filled with love and compassion, he ran to his son, embraced him, and kissed him.* - Luke 15:20
 
 I’m glad the father in Jesus’ story about the prodigal son wasn’t a bookkeeper, because he represents what God is like.
@@ -735,6 +813,7 @@ Like us, those who crucified Him knew in part, and in part they didn’t know. B
 
 How David Learnt Forgiveness
 ============================
+
 *Have mercy on me, O God, according to your unfailing love; according to your great compassion blot out my transgressions. Wash away all my iniquity and cleanse me from my sin.* - Psalm 51:1–2 NIV
 
 When David, the future king of Israel, was young, he thought he understood about forgiveness, but he didn’t. Like so many of us, he learnt forgiveness the hard way. David learnt his need of forgiveness when later in life he awoke one day and realised what he had become – a lustful adulterer and a vile murder. In his great Psalm of repentance he cried out to God,
@@ -757,6 +836,7 @@ There is nothing more important in life than learning your need of forgiveness, 
 
 How Moses Learnt Forgiveness
 ============================
+
 *But now, please forgive their sin — but if not, then blot me out of the book you have written.* - Exodus 32:32, NIV
 
 The hardest lesson that the great men and women of God have always had to learn is the lesson of forgiveness: what it means to be forgiven, and what it means to forgive. Moses learnt that lesson, like all of us do, the hard way.
@@ -775,6 +855,7 @@ Forgiveness has a cost: the life of the Son of God. And you will need forgivenes
 
 The Longest Silence
 ===================
+
 *O God, do not remain quiet; Do not be silent and, O God, do not be still.* - Psalm 83:1, NASB
 
 The longest silence was when that woman who was a foreigner followed Jesus along the road, crying out, Have mercy on me, O Lord, Son of David! (Matthew 15:22)
@@ -801,6 +882,7 @@ You are forgiven. You are accepted. You are loved. You are his. – Eliezer Gonz
 
 God Focuses on the Heart
 ========================
+
 *For where your treasure is, there your heart will be also.* - Matthew 6:21, NIV
 
 It’s natural for us to focus on the externals—things we can see, hear, touch, and try to control. However, the teachings of Jesus overwhelmingly focus on the heart. Jesus directly and consistently rebuked those whose religious teachings were focused on the externals.
@@ -878,6 +960,35 @@ In that story, there were many who could accuse her, but not Jesus Christ. The W
 In Romans 8, Paul exhausts the possibilities of human language to tell you that in Christ, you are free, and no one can accuse you. You can have peace with God, peace with others, and peace within yourself. – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Kissing Jesus
+=============
+
+*When one of the Pharisees invited Jesus to have dinner with him, he went to the Pharisee’s house and reclined at the table. A woman in that town who lived a sinful life learned that Jesus was eating at the Pharisee’s house, so she came there with an alabaster jar of perfume. As she stood behind him at his feet weeping, she began to wet his feet with her tears. Then she wiped them with her hair, kissed them and poured perfume on them.* - Luke 7:36-38 NIV
+
+In Jesus’ culture, it was common for men to display affection for each other, such as greeting each other with a kiss. It’s still the custom in Middle Eastern and many European cultures today.
+
+But there are only two people the Bible mentions who actually kissed Jesus: Mary and Judas. Mary gave Jesus a kiss of loving self-sacrifice, by kissing his feet that she had anointed them with perfume (Luke 7:38), but Judas gave a kiss of betrayal in Gethsemane (Mark 14:44).
+
+It is no coincidence that the Greek word for worship springs from a root related to the word “kiss.” Psalm 2:12, which points to the coming Messiah, tells us to,
+
+    *Kiss the Son* – Psalm 2:12.
+
+The truth is that we will all stand before him. The question is, when we see him, with what kiss will we greet him? Will we fall at his feet and shower them with kisses like Mary, or will it be the cold and formal kiss of betrayal?
+
+The world greeted Jesus at the Cross with nails and thorns, and he replied with arms spread wide in forgiving love. It was there that Jesus kissed the world with peace:
+
+    *Love and faithfulness meet together; righteousness and peace kiss each other.* Psalm 85:10
+
+– Eliezer Gonzalez
+
+
+
+
 
 Back to top of: :ref:`eg-Forgiveness`
 
@@ -920,18 +1031,20 @@ Challenges of Life
 
 Walk on Water Today!
 ====================
+
 *“Lord, if it’s you,” Peter replied, “tell me to come to you on the water.”
 “Come,” he said.
 Then Peter got down out of the boat, walked on the water and came toward Jesus. But when he saw the wind, he was afraid and, beginning to sink, cried out, “Lord, save me!”
 Immediately Jesus reached out his hand and caught him. “You of little faith,” he said, “why did you doubt?”* - Matthew 14:28–31
- 
+
 Peter is the only man who ever walked on water. He had enough faith in Jesus to do so, but he was human and when his faith was tested by the elements it wavered and he sank. However, it was his faith in Jesus that saved him.
- 
+
 When Jesus calls you to walk on water you can achieve the impossible through faith in him. It may be a wavering faith, it may be a stumbling faith; it may even be a doubting faith. That’s why your walk may not be perfect; at times you may even sink beneath the waves. However, faith, even faith as small as a mustard seed, is what you need to walk on water. And Jesus will always be there to reach out with his hand when you stumble.
- 
+
 Others may remain in the security of the boat, but that’s not where the most exhilarating joy of the Kingdom of God is to be found. If you make Jesus your security he will enable you to accomplish the impossible through faith in him.
- 
+
 Think about the challenges that are facing you. Are you trusting in the Lord to walk on water today? Spend some time listening to his voice, and affirm your faith in him. – Eliezer Gonzalez and Ritchie Way
+
 
 .. image:: ../images/Flourish02.png
     :align: center
@@ -940,7 +1053,8 @@ Think about the challenges that are facing you. Are you trusting in the Lord to 
 
 God Wants to Be Real To You
 ===========================
-*This is the confidence we have in approaching God: that if we ask anything according to his will, he hears us* – 1 John 5:14
+
+*This is the confidence we have in approaching God: that if we ask anything according to his will, he hears us.* – 1 John 5:14
  
 You never really know someone until you meet them and speak with them, do you? I was born in Switzerland and grew up in Australia. I always knew that I had many relatives in Spain, where my parents came from, but until I met them, they weren’t “real” to me. A similar thing happened with Samuel:
 
@@ -956,6 +1070,7 @@ God has a million ways of telling you he loves you. All you need to do is listen
  
 How do I know that God exists? I was just speaking with him this morning. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -963,11 +1078,12 @@ How do I know that God exists? I was just speaking with him this morning. – El
 
 The Only Life That Satisfies
 ============================
-*In him was life, and that life was the light of all mankind* - John 1:4
+
+*In him was life, and that life was the light of all mankind.* - John 1:4
 
 If we believe that God exists, then we can also predict that, apart from him, humanity will have a restless desire for something more. Pascal wrote of how: 
 
-    “There is a god-shaped vacuum in the heart of every man, and only God can fill it.”
+    “There is a God-shaped vacuum in the heart of every man, and only God can fill it.”
     
 C.S. Lewis said it like this,
  
@@ -979,9 +1095,10 @@ Many atheists have also recognized the existence of a restless, unfulfilled desi
 
 Our secular culture is relentless in its failed pursuit of fulfillment apart from God. All of this points to the truth of the ancient words:
 
-    *This is eternal life: that they may know you, the only true God, and Jesus Christ, whom you have sent* - John 17:3
+    *This is eternal life: that they may know you, the only true God, and Jesus Christ, whom you have sent.* - John 17:3
 
 Only in Christ can you find true life; anything else is worthless. – Eliezer Gonzalez
+
 
 .. image:: ../images/Flourish02.png
     :align: center
@@ -990,7 +1107,8 @@ Only in Christ can you find true life; anything else is worthless. – Eliezer G
 
 God Puts Beauty in Your Life
 ============================
-*He has made everything beautiful in its time. He has also set eternity in the human heart; yet no one can fathom what God has done from beginning to end* - Ecclesiastes 3:11
+
+*He has made everything beautiful in its time. He has also set eternity in the human heart; yet no one can fathom what God has done from beginning to end.* - Ecclesiastes 3:11
  
 I love the magnificent beauty of a sunset over the ocean. I live on the east coast of Australia so we don’t get sunsets over the ocean, but I will never forget my stay in Chile in 1997, when I would rush to the seashore to catch the sunset at every opportunity I could get.
  
@@ -1004,6 +1122,7 @@ Why do we practically universally recognize what is beautiful? Why do we recogni
  
 Beauty comes from the One who is altogether beautiful, and the author of all that is good. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1011,6 +1130,7 @@ Beauty comes from the One who is altogether beautiful, and the author of all tha
 
 Jesus Handles Your Storms
 =========================
+
 *He arose and rebuked the wind, and said to the sea, “Peace, be still!” And the wind ceased and there was a great calm.* - Mark 4:39
 
 You’ve heard of storm chasers, haven’t you? They’re the people who instead of running away from massive storms, jump in their cars and drive toward them! 
@@ -1023,6 +1143,7 @@ You don’t have to chase storms in your life. You can bet they’ll come to you
  
 But when you’re feeling like you’re in the eye of the storm, remember that Jesus has already handled it for you! After all, Jesus has already handled death and resurrection for you. What more could you need than Jesus? You’re not alone. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1030,6 +1151,7 @@ But when you’re feeling like you’re in the eye of the storm, remember that J
 
 How Not To Miss Your Flight
 ===========================
+
 *Come, you who are blessed by my Father; take your inheritance, the kingdom prepared for you since the creation of the world.* - Matthew 25:34
 
 I once missed a flight because I didn’t read the departure time on my ticket. It’s not what I had done that got me in trouble, instead it’s what I hadn’t done that was the problem. I felt like a goat.
@@ -1044,6 +1166,7 @@ You are lost, not just by what you’ve done, but also by what you haven’t don
  
 This should cause us to throw ourselves completely into the arms of our loving Saviour, because you wouldn’t want to miss your flight! – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1051,6 +1174,7 @@ This should cause us to throw ourselves completely into the arms of our loving S
 
 The Secret to Happiness
 =======================
+
 *Give “joyful thanks to the Father, who has qualified you to share in the inheritance of His holy people in the kingdom of light”.* - Colossians 1:12
 
 Many people pursue happiness as the object of life. Nathaniel Hawthorne wrote,
@@ -1067,6 +1191,7 @@ Happiness is not found in what we do, but in trusting in God’s goodness.  It�
  
 Receive the grace of God, and happiness undreamed of will come your way. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1074,6 +1199,7 @@ Receive the grace of God, and happiness undreamed of will come your way. – Eli
 
 God Will Fill You To Overflowing
 ================================
+
 *May the God of hope fill you with all joy and peace as you trust in Him, so that you may overflow with hope by the power of the Holy Spirit.* - Romans 15:13, NIV
 
 Did you know that the universe is 99.999% empty space? And that means our bodies as well. That means that if you took away all of the space between the atoms in our bodies, the whole human race would take up the space of a sugar cube. That’s because our bodies are 99.999% empty space.
@@ -1088,6 +1214,7 @@ Because Jesus has overcome death, when you believe in Him, He fills you with new
  
 When you trust in Him, God fills you to overflowing, through the Holy Spirit, with joy and peace. God fills all your empty spaces and turns them into joy. He fills you with eternity. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1095,6 +1222,7 @@ When you trust in Him, God fills you to overflowing, through the Holy Spirit, wi
 
 The Cross Was Not The End
 =========================
+
 *In my former book, Theophilus, I wrote about all that Jesus began to do and to teach.* - Acts 1:1
 
 The words in the verse above are the ones with which Luke begins his second book about what Jesus did. This first book was of course the gospel that bears his name, and this second book is called the Acts of the Apostles. The Gospel of Luke is about “all that Jesus began to do and to teach.” The Acts of the Apostles is about all that Jesus continued to do and to teach “after His suffering” (v.3).
@@ -1105,6 +1233,7 @@ Jesus is alive! He is still at work today! His story is not a story of the past,
 
 In God’s story, the things that seem to be the end are only the beginning, and they lead to eternal glory. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1112,6 +1241,7 @@ In God’s story, the things that seem to be the end are only the beginning, and
 
 There’s No Need to Wait
 =======================
+
 *What are you waiting for? ... Have your sins washed away by calling on the Name of the Lord.* - Acts 22:16, NLT
  
 It was a long wait when that woman who was a foreigner followed Jesus along the road, crying out:
@@ -1130,13 +1260,14 @@ During your life, you will go through times of apparent silence. But it is not G
  
 You are forgiven. You are accepted. You are His. There’s no longer any need to wait. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
 
 
-You Will Be Satisfied ...
-=========================
+You Will Be Satisfied...
+========================
 ... **in the Kingdom of God**
 
 *I am the bread of life: He that comes to me shall never hunger; and He that believes on me shall never thirst.* - John 6:35
@@ -1155,8 +1286,8 @@ Jesus tells us to put Him and His Kingdom first, and then we’ll have everythin
     :width: 200px
 
 
-The Kingdom of Heaven ...
-=========================
+The Kingdom of Heaven...
+========================
 ... **is Not Just a Future Hope**
 
 *The thief’s purpose is to steal and kill and destroy. My purpose is to give them a rich and satisfying life.* - John 10:10, NLT
@@ -1177,8 +1308,8 @@ Only those who live profitably and joyfully in Christ’s Kingdom now will ever 
     :width: 200px
 
 
-There’s No Difference ...
-=========================
+There’s No Difference...
+========================
 ... **Between Us in the Kingdom**
 
 *There is no difference ... the same Lord is Lord of all and richly blesses all who call on him.* - Romans 10:12
@@ -1203,6 +1334,7 @@ The blessing that the Lord has for us all is the forgiveness of sin and the gift
 
 Jesus Wants To Focus on Our Hearts
 ==================================
+
 *These people honour me with their lips, but their hearts are far from me.* - Matthew 15:8 NIV
 
 There’s nothing more annoying than a car that won’t start when you need it to. It happened to me recently with a car I bought that seemed a real bargain. It’s easy to paint a dodgy car up and make it look good, while not bothering to fix it on the inside, where it matters most.
@@ -1223,6 +1355,7 @@ God isn’t primarily interested in the externals. He cleans you from the inside
 
 Knocked Down But Not Out
 ========================
+
 *We are experiencing all kinds of trouble, but we aren’t crushed. We are confused, but we aren’t depressed. We are harassed, but we aren’t abandoned. We are knocked down, but we aren’t knocked out.* - 2 Corinthians 4:8–9, CEB
 
 If there were ever anyone who had reason to complain about their life, Paul of Tarsus would have been the one. In 2 Corinthians 11:23–27, he writes about how many times he has been thrown in prison, beaten, flogged within an inch of his life, stoned, shipwrecked, and betrayed. He says that he has gone without sleep, food, drink, and warmth, and he has faced dangers everywhere.
@@ -1243,6 +1376,7 @@ Hold on to the fact that you will be raised with Jesus. Focus on the eternal thi
 
 Embrace Pure Joy
 ================
+
 *Consider it pure joy, my brothers and sisters, whenever you face trials of many kinds.* – James 1:2, NIV
 
 What is pure joy for you? Is it a day at the beach? Is it breakfast in bed? Is it winning the lottery?
@@ -1265,6 +1399,7 @@ Embrace pure joy. Choose today to breathe the pure, sweet air of heaven, instead
 
 Smashing Good News!
 ===================
+
 *The God of peace will soon crush Satan under your feet.* - Romans 16:20, NIV
 
 This short verse raises some questions. How can Satan be crushed under our feet? Surely, like in other passage in the New Testament, shouldn’t Satan should be crushed under Jesus’ feet? And how can the God of peace do smashing and crushing?
@@ -1285,6 +1420,7 @@ How we should look forward to that day! Peace with God now, and peace everlastin
 
 No More Hatred!
 ===============
+
 *There is no greater love than to lay down one’s life for one’s friends.* - John 15:13, NLT
 
 There is a power that is stronger than hatred. **It is the power of forgiveness**.
@@ -1311,6 +1447,7 @@ Sacrificial love has transforming power. It is the very power of Christ, given t
 
 Jump For Joy!
 =============
+
 *Be truly glad. There is wonderful joy ahead.* - 1 Peter 1:6, NLT
 
 The actual Greek word that Peter uses, that is translated here as truly glad, and as in the KJV, literally means “jump for joy.”
@@ -1331,6 +1468,7 @@ Excuse me. I have to stand up. I have to jump for joy! – Eliezer Gonzalez
 
 Approach God Based on His Mercy
 ===============================
+
 *Have mercy on me, O God, according to your unfailing love; according to your great compassion blot out my transgressions.* - Psalm 51:1, NIV
  
 Psalm 26 is very different to the Psalm quoted above. It is a Psalm of David’s youth, written before he understood the depths of his weakness, and the evil of which his heart was capable.
@@ -1347,8 +1485,8 @@ We must learn, like David, to pray the prayer that the older and wiser David lat
     :width: 200px
 
 
-Age is No Barrier ...
-=====================
+Age is No Barrier...
+====================
 ... **to Bearing Fruit in the Kingdom**
 
 Even in old age they will still produce fruit; they will remain vital and green (Psalm 92:14, NLT).
@@ -1367,8 +1505,8 @@ I want to do that too. I want to produce fruit for as long as God will allow me 
     :width: 200px
 
 
-Be Part of ...
-==============
+Be Part of...
+=============
 ... **Changing the World**
 
 *Your will be done, on earth as it is in heaven.* - Matthew 6:10, NIV
@@ -1389,8 +1527,8 @@ The citizens of the Kingdom will always advance the Kingdom. – Eliezer Gonzale
     :width: 200px
 
 
-In the Kingdom ...
-==================
+In the Kingdom...
+=================
 ... **We Speak to The Bones**
 
 *“Prophesy to these bones, and say to them, ‘O dry bones, hear the word of the Lord!  Thus says the Lord God to these bones: “Surely I will cause breath to enter into you, and you shall live.”* -  Ezekiel 37:4–5, NKJV
@@ -1413,8 +1551,8 @@ Are you happy to sit by yourself in a valley of dry bones? No? Well, what are yo
     :width: 200px
 
 
-There’s Always Bread ...
-========================
+There’s Always Bread...
+=======================
 ... **in the House of Bread**
 
 *Man shall not live on bread alone, but on every word that comes from the mouth of God.* - Matthew 4:4, NIV
@@ -1507,8 +1645,8 @@ Have you spoken grace, lived grace, and been grace to those who need it? If so, 
     :width: 200px
 
 
-Grace Means ...
-===============
+Grace Means...
+==============
 ... **that It’s Not Where You Begin That Counts**
 
 *Although your former state was ordinary, your future will be extraordinary.* - Job 8:7, CEB
@@ -1536,8 +1674,8 @@ Are you in a bad place right now? Have you been there for a while? Remember the 
     :width: 200px
 
 
-The Kingdom’s Cure ...
-======================
+The Kingdom’s Cure...
+=====================
 ... **for Prejudice**
 
 *All of you are brothers and sisters.* - Matthew 23:8, CEB
@@ -1566,8 +1704,8 @@ The Cross is God’s ultimate stand against prejudice. Like today, it seemed for
     :width: 200px
 
 
-In the World ...
-================
+In the World...
+===============
 ... **We Are Fools for Christ**
 
 *We are fools for Christ.* - 1 Corinthians 4:10, NIV
@@ -1590,8 +1728,8 @@ At some point or another, all of us are going to look foolish in some way or ano
     :width: 200px
 
 
-You Plus God Are ...
-====================
+You Plus God Are...
+===================
 ... **Always a Majority**
 
 *The least will become a thousand, and the smallest a powerful people.
@@ -1615,8 +1753,8 @@ This says that when the Lord is on your side, you are always a majority, just as
     :width: 200px
 
 
-No-one Will Just “Squeeze” ...
-==============================
+No-one Will Just “Squeeze”...
+=============================
 ... **into Heaven**
 
 *God will give you a grand entrance into the eternal Kingdom of our Lord and Saviour Jesus Christ.* - 2 Peter 1:11, TLB
@@ -1710,8 +1848,8 @@ In the end, the wrong people, by accepting Jesus’ blessing, become the right p
     :width: 200px
 
 
-Solve Your Problems ...
-=======================
+Solve Your Problems...
+======================
 ... **the Right Way**
 
 *Jesus then took the loaves, gave thanks, and distributed to those who were seated as much as they wanted.* John 6:11
@@ -1750,8 +1888,149 @@ Whatever may be lacking in your life, God can call into being. We have a God who
 When you feel like you’ve hit your dead end, remember the story of Abraham.  When you’re a believer in Jesus, your best days are always ahead of you. Like Abraham, the fulfilment of all of God’s promises are just around the corner, and you’re about to inherit the world! – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Be Free from Guilt
+==================
+
+*"Come to me, all of you who are weary and carry heavy burdens, and I will give you rest."* - Matthew 11:28–30, NLT
+
+My father grew up in a small town in Spain. When he was around eight years old, he had a younger brother called Antonio who was very ill with epilepsy. One morning, his mother told my father to hold Antonio tightly so he wouldn’t follow her to work outside. Little Antonio, who was very upset, struggled hard. He exhausted himself, and he remained very ill for the rest of the day. He died that night.
+ 
+Their mother was distraught with grief. Antonio was her youngest child. In her grief, she turned on my father, who was only a little boy himself, “You killed Antonio!”
+
+My father carried that guilt for the rest of his life. He was too young to understand that it hadn’t been his fault, and he carried that guilt for the rest of his life.
+ 
+Each one of us carries a huge load of guilt. It’s part of the human condition. We’re often not even aware of it. Some of it is guilt for which we’re responsible, but often it’s guilt that others have unfairly laid on us. Jesus invites us to lay our burdens on him (Matthew 11:28–30).
+
+Whatever might be the guilt you carry, there’s release and forgiveness in Jesus (John 8:38). – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Must Be Born Again
+======================
+
+*"You must be born again."* - John 3:7
+
+One of the most striking things about what Jesus said is not what he said, but whom he said it to. Nicodemus was a member of the Jewish ruling council and the leading theologian of his religion (John 3:1,9: “Israel’s teacher.”) Jesus was talking to a man who was revered by the nation for his knowledge and achievements. But what Jesus basically told Nicodemus was,
+
+“I appreciate your sincerity. However, when you are in my presence, everything you have done from the day of your birth until today – and I mean absolutely everything – means absolutely nothing.” Jesus was referring to salvation.
+
+Nicodemus must have been totally shocked when he heard this. But that’s what a new birth is. It means that whatever life you had before is gone, and only your new life counts.
+
+What about you? Have you realised that whatever you have done or achieved before you were born again in Christ means nothing (Philippians 3:7)?
+
+Being born again means that there is nothing in your past that can condemn you, and nothing in your future that can hinder you.
+
+You must be born again. It’s a scary thought at first, I know, but think of the upside – eternal life! It means a new life in which your past means nothing, and Jesus means everything. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Rivers of Living Water...
+=========================
+... **for You**
+
+*"Whoever believes in me, as the Scriptures said, out of his heart will flow rivers of living water."* - John 7:38, NKJV
+
+When Jesus says, “as the Scriptures said,” he is referring to Ezekiel 47. In this chapter, Ezekiel has a vision of the glorious true temple. From the altar of the temple (47:1) a trickle of water flows, which becomes a stream, and then a mighty river. Wherever the river flows, it gives life, and nothing dies. In effect, Jesus was saying that he is the true temple, and he is the source of that river – the source of all life.
+
+Jesus gives you abundant and eternal life, not a trickle of it, not a stream, not one river, but countless rivers or it - when you believe in him.
+
+If the river of life is flowing within us, then we have eternal life as our present possession. It is not something to be looked for outside of us, nor is it just some future hope. It is a present reality, right here, and right now.
+
+Jesus is the source of the water of life (John 14:4). Even more specifically, this living water flows from the alter, as Ezekiel 47 points out. In other words, it flows directly from the sacrifice of Christ at Calvary.
+
+The key question that we must ask ourselves is, “How deep has the message of the Gospel gotten into me?” – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Jesus Came With Gifts
+=====================
+
+*So the Word became human and made his home among us. He was full of unfailing love and faithfulness.* - John 1:14, NLT
+
+There’s an old African saying that goes, “A visitor is a blessing.” For that reason hospitality to guests is a traditional African value. However, the saying works another way as well, because visitors, especially those who come from far away, bring gifts for the children in the family.
+ 
+More than 2000 years ago, Jesus arrived at our home, the earth. Although he received some gifts at his birth, it was he who came with the greatest gifts of all. He brought his gifts of unfailing love and faithfulness.
+ 
+Have you ever felt unloved? Have you ever experienced the unfaithfulness of another? Imagine then a world full of love and a faithfulness that never lets you down. Well, they’re the two gifts that Jesus brought with him when he came into the world!
+ 
+You cannot have love and faithfulness without a relationship, and you cannot have a relationship without a person. That’s why, when Jesus came into the world, he brought these two gifts within himself. As the verse says, Christ was “full of” unfailing love and faithfulness.
+ 
+Christ didn’t just come to visit; he came to stay (Matthew 28:20). Christ’s extreme love calls for my extreme response. Our hospitality to Christ in our lives should be without limits and without reserve. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Can Throw Caution Aside...
+==============================
+... **With Jesus**
+
+*"Daughter, your faith has healed you. Go in peace."* - Luke 8:48, NIV
+
+Most people tend to be cautious when making important decisions. I know I’ve had to think carefully and make lists of pros and cons for a particular course of action.
+
+The Bible tells the story of a woman who’d been sick for 12 years. She’d tried everything, and now she had nothing left – no doctors who could help, no money, and no hope. So what did she do? She threw all caution aside, and pushed through the crowd, not caring what anyone else thought about her any more. And then she just reached out and touched the edge of Jesus’ clothing, and immediately she was healed.
+
+We all know what it is to be desperate, when no one can help us but God. In those times, sure, you can make a list of pros and cons, and weigh up your options, but that’s not the best thing to do.
+
+But here’s a better plan. You can put all caution aside, push through the crowd, and just reach out. We call that faith. Jesus will be there for you as well.
+ 
+Those who have thrown all caution aside with Jesus have always discovered that there was never any reason to be cautious. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+News You’ll Want To Share
+=========================
+
+*God showed his great love for us by sending Christ to die for us while we were still sinners.* - Romans 5:8, NLT
+
+One of the hardest things to do when someone has won the lottery is to keep the news quiet. Everyone who’s ever known you or heard about you suddenly wants to be your best friend, and share in your good luck. Everyone is suddenly your long-lost relative!
+ 
+Good news is hard to keep quiet, and the best news travels the fastest of all! So here is the best news of all: God loved you even when you didn’t love him, and he saves you even though you’re a sinner.
+ 
+If the essential message of Christianity were something like, "Be good and God might save you," it wouldn’t even travel beyond a few people. But if instead the gospel is grace, and joy, forgiveness, power, mercy and a thousand other good things, then you can understand how the Good News of Jesus travels fast!
+ 
+Many people believe that they have to earn God’s love. But there’s no good news in the idea that if you’re good, God might love you. But there’s a heap of good news in the story of a God who justifies the ungodly, who receives sinners, the who says, “I will never turn away whoever comes to me.”
+ 
+God wants that kind of news to travel fast, and who would ever want to keep it quiet? – Eliezer Gonzalez
+
 
 Back to top of: :ref:`eg-Challenges`
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1804,8 +2083,8 @@ The Reality of God
 ******************
 
 
-God Tells Us The Truth ...
-==========================
+God Tells Us The Truth...
+=========================
 ... **About Our World**
 
 *The earth is the LORD's, and everything in it, the world, and all who live in it* – Psalm 24:1
@@ -1820,6 +2099,7 @@ I see a world that is broken and lost in sin; but even so, Christ loves it, and 
  
 There is not one square inch in the whole domain of human existence over which Jesus Christ, who is Lord of all, does not exclaim, “It’s Mine!” – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1827,7 +2107,8 @@ There is not one square inch in the whole domain of human existence over which J
 
 The Language of the Stars
 =========================
-*The heavens are telling the glory of God; they are a marvelous display of his craftsmanship. Day and night they keep on telling about God. Without a sound or word, silent in the skies, their message reaches out to all the world* - Psalm 19:1–3, TLB
+
+*The heavens are telling the glory of God; they are a marvelous display of his craftsmanship. Day and night they keep on telling about God. Without a sound or word, silent in the skies, their message reaches out to all the world.* - Psalm 19:1–3, TLB
 
 Once a year, our family goes camping by the beach in northern NSW, Australia. This is when I am happiest, since it combines two of my great loves: the sea and the sky.
  
@@ -1839,6 +2120,7 @@ That’s what David wrote about in Psalm 19. He tells us that the heavens have t
  
 All of us need to enlarge our spirits beyond ourselves, to reach out to heaven, to breathe in the language of our Creator God. I’ve found that difficult to do within four walls. But he's still there; God never stops speaking. Are we listening? – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1846,6 +2128,7 @@ All of us need to enlarge our spirits beyond ourselves, to reach out to heaven, 
 
 To Know Him Is To Love Him
 ==========================
+
 *The Son is the radiance of God’s glory and the exact representation of his being.* - Hebrews 1:3
  
 When Amy Winehouse covered the song, “To Know Him is to Love Him,” she might not have known that this title is more true of God than of anyone else. If what Jesus reveals about God is true, then the only reason that anyone would have for not loving him is because they’ve never known him.
@@ -1856,13 +2139,14 @@ The Bible tells us that Jesus came to show us what God is like. It tells us abou
  
 If you want to know what God is like, look at Jesus. Jesus is a living revelation of God that you cannot get from any philosophy, teaching, or book. Christ’s revelation of the goodness of God will change how you see yourself, the world, and everyone you share it with. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
 
 
-You Can Trust ...
-=================
+You Can Trust...
+================
 ... **Who’s On The Throne**
 
 *I saw a Lamb, looking as if it had been slain, standing at the center of the throne, encircled by the four living creatures and the elders.* - Revelation 5:6, NIV
@@ -1877,6 +2161,7 @@ The One who is on the throne is not some distant deity; He is the Man of Sorrows
 
 What do you do when you can’t understand? You keep on trusting. What do you do when you’ve seen the Lamb? You keep on following. – Eliezer Gonzalez
 
+
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
@@ -1884,6 +2169,7 @@ What do you do when you can’t understand? You keep on trusting. What do you do
 
 Eternity is God’s Gift to You
 =============================
+
 *I am the Alpha and the Omega, who is, and who was, and who is to come, the Almighty.* - Revelation 1:8
 
 In spite of what Dr. Who, the Time Lord from the BBC television series, might tell you, we haven’t mastered time yet. Time goes by at the same speed for all of us. It’s what we do with it that counts.
@@ -1904,6 +2190,7 @@ Our God tells us that He loves us with an everlasting love (Jeremiah 31:3), a lo
 
 Jesus Gives You Real Life
 =========================
+
 *Everyone who lives and believes in Me will never die.* - John 11:26, NASB
 
 Look at how full of life children are! Although age, sickness, and the eventual troubles of life wear us down, most people at the end of their days hold on, wanting another day, another hour, even another minute. It’s innate in us to want to live, and not to die.
@@ -1924,6 +2211,7 @@ When you accept Christ’s gift of life, you have eternity in which to be the pe
 
 The Cross Makes the Bitter Sweet
 ================================
+
 *And walk in love, as Christ also has loved us and given Himself for us, an offering and a sacrifice to God for a sweet-smelling aroma.* – Ephesians 5:2, NKJV
 
 After the miraculous crossing of the Red Sea, the Children of Israel travelled through the desert for three days without finding any water. Then suddenly, in the distance, they saw what looked like an oasis!
@@ -1944,6 +2232,7 @@ That piece of wood represents the Cross of Calvary. It is the Cross of Christ by
 
 The Joy Is In the Walk
 ======================
+
 *My sheep hear My voice, and I know them, and they follow Me.* - John 10:27, NKJV
 
 As Christians, we seem to be always waiting for God to do something. We often think that the joy is in the answered prayer, but what if the joy is also actually in the praying itself?
@@ -1966,8 +2255,8 @@ But Jesus knows that the joy is in the walk, and if you’re walking with Jesus,
     :width: 200px
 
 
-Your Heavenly Father Sees ...
-=============================
+Your Heavenly Father Sees...
+============================
 ... **You From Afar**
 
 *While he was still a long way off, his father saw him coming. Filled with love and compassion, he ran to his son, embraced him, and kissed him.* - Luke 15:20, NLT
@@ -1981,6 +2270,30 @@ The boy’s father had never given up on him, and the story says that even while
 This tells us that God sees us. No matter how far you think you are from God, he sees you, and he sees you with love in his eyes. Your Heavenly Father waits for you, with a loving welcome, and acceptance and joy.
  
 We have a Father who sees us from afar, and saves us from our foolishness. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+How Jesus Sees You...
+=====================
+... **When You’re Down**
+
+*"Truly I tell you, among those born of women there has not risen anyone greater than John the Baptist..."* - Matthew 11:11, NIV
+
+The important thing is not how you see yourself, but how Jesus sees you when you’re down. If you accept how Jesus sees you as your reality, you can get through anything!
+
+A few weeks earlier, John had been standing up courageously for Jesus (John 1:29). But now things had changed.  He was in a dungeon and it looked as though it was the end. John was fearful, depressed, and doubting what he thought he knew.
+
+Jesus was speaking about John to a crowd of people, and he talked to them about John’s strength, courage, and faithfulness. In fact, he told them that he was the most successful, and the greatest man, ever to have been born into the world (Matthew 11:14)!
+
+John is feeling fearful; Jesus sees him as courageous. John is feeling weak; Jesus sees him as strong. John sees himself as a failure; Jesus sees him as the most successful man who ever lived.
+
+I’m willing to stake my life that what Jesus says is true, over and above whatever John might have felt about himself. In fact, I do stake my life on it, because the question is not how Jesus saw John the Baptist when he was down, but how Jesus see me when I’m down.
+
+Trust how Jesus sees you through his eyes of grace. – Eliezer Gonzalez
 
 
 .. image:: ../images/Flourish02.png
@@ -2177,8 +2490,8 @@ You and I are not living in a time of shadowy, unrealised hopes, but in the time
     :width: 200px
 
 
-The Kingdom ...
-===============
+The Kingdom...
+==============
 ... **of the Born Again**
 
 *Very truly I tell you, no one can see the kingdom of God unless they are born again.* - John 3:3, NIV
@@ -2203,8 +2516,8 @@ Jesus’ words give us the answer. The Kingdom of God can only be seen, and expe
     :width: 200px
 
 
-The Kingdom of God ...
-======================
+The Kingdom of God...
+=====================
 ... **is For Real**
 
 *Faith is the reality of what we hope for, the proof of what we don’t see.* - Hebrews 11:1, CEB
@@ -2434,8 +2747,8 @@ Oh yes, this parable has the expansive, unbounded, extravagant love of the Fathe
     :width: 200px
 
 
-Nothing Can Separate You ...
-============================
+Nothing Can Separate You...
+===========================
 ... **from the Love of God**
 
 *I am convinced that neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor depth, nor anything else in all creation, will be able to separate us from the love of God that is in Christ Jesus our Lord.* - Romans 8:38,39, NIV
@@ -2478,8 +2791,8 @@ God is for you. That’s what Jesus came to tell us. Embrace this truth, because
     :width: 200px
 
 
-All the Power of Jesus’ Name ...
-================================
+All the Power of Jesus’ Name...
+===============================
 ... **is For You**
 
 *I will do whatever you ask in my name, so that the Father may be glorified in the Son.* - John 14:13, NIV
@@ -2514,8 +2827,122 @@ This better covenant is also based on a better sacrifice (ch.9). This ensures he
 That’s a summary of the whole book of Hebrews, and that’s why I love it. Jesus is better! – Eliezer Gonzalez
 
 
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The God Who Bends Down
+======================
+
+*I love the Lord because he hears my voice... because he bends down to listen.* - Psalm 116:1–2, NLT
+
+This idea of God “bending down” was completely unknown in all ancient cultures, and today, it is still what distinguishes the true God from all other gods. The gods lived up there in the sky and in the stars, or on the highest mountains, and they never came down to associate with humanity in any meaningful or caring way. But the true God bends down in mercy!
+
+At the core of Christianity is the idea that God has come down to us, not for any other purpose than that he just loves being with us, because he just... loves us!
+
+God doesn't wait for you to reach him. He bends down to reach you. (See also Matthew 28:20.)
+
+When Jesus was born, the angel announced that his name would be “God with us” (Matthew 1:23).
+
+This means that it doesn’t matter what situation you may find yourself in life; God is able to reach you there. Even if you think you’ve hit your lowest point, if you accept him as your friend, he will be there for you. God doesn’t wait for you to reach him. He bends down to reach you.
+
+Being all-powerful and glorious is fine. But God bends down. And that’s the greatest reason to worship that we could ever have. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Waiting for the Blessing
+========================
+
+*If it seems slow in coming, wait patiently, for it will surely take place. It will not be delayed.* - Habakkuk 2:3, NLT
+
+Have you been waiting for God’s blessing? There’s a beautiful lesson in the story about when Jesus raised Lazarus from the dead. Martha had been waiting to be blessed by Jesus, to the point when now it seemed too late. Her brother Lazarus had died. Now, after Lazarus had been dead for four days, Jesus finally arrives. Martha is deeply grieving. She tells Jesus that she believes in the resurrection at the last day. But Jesus says to her, “That’s good, but more importantly, do you believe in me?” (My paraphrase). And Martha replied,
+ 
+    “Yes, Lord! I believe that you are the Christ, the Son of God. You are the one that we have been waiting for!”
+
+And Jesus went and called Lazarus from the dead, and he came out of the tomb alive.
+ 
+When you believe in Jesus, the blessings come sooner than you think. Martha thought that her blessing would come at the end of the world. But Jesus was right there, and the blessing was just around the corner. It was a blessing that Martha never expected, and it was even better than what she ever could have hoped for.
+
+It’s the same with the blessings that Christ has for you today. Christ’s blessings are always better than you could have ever dreamed, and they come sooner than you think. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Grace of God is For You
+===========================
+
+*"The Most High... is kind to the unthankful and evil."* - Luke 6:35, NKJV
+
+This is one of the most amazing verses in the entire Bible. We sometimes tend to think of God as we view other human beings, as narrow-minded, mean-spirited, and exclusive. But that’s not what Christianity teaches at all. The grace of God is not restricted to a particular church or denomination, or race, or some kind of limited notion of the “elect”; not at all! The grace of God is for the entire world to enjoy (John 3:16).
+
+The grace of God is like the light that fills our world, and like the atmosphere we all breathe; it is free and available to all. Light, by its very nature, cannot be hidden. It gives light to everyone (John 1:4,9). On another occasion, Jesus also said that our Heavenly Father,
+
+    *"...causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous."* Matthew 5:45, NIV
+
+The interesting thing is that Jesus said this in the context of encouraging us to do the same (v.44).
+ 
+God encourages us to do just what he does: to be kind to the ungrateful and to the evil. He says that when we do that, we are living like his own children. After all, joy is found only when you love. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Salvation Made Easy
+===================
+
+*"Come to me... I’ll show you how to take a real rest... Learn the unforced rhythms of grace. I won’t lay anything heavy or ill-fitting on you... learn to live freely and lightly."* - Matthew 11:28, MSG
+
+I’m not very good at any sport, but I enjoy it. I’ve been playing a bit of tennis recently. Usually we hit the ball around a bit before we play for points. I find that I hit the ball much better and I’m more relaxed, when I’m not playing for points than when I’m actually playing a game.
+
+For me, that’s a great analogy of what life is like. You can either live life as if trying to earn salvation: religiously focused on avoiding mistakes, and striving to improve and to be good enough. Or you can live as if your salvation has already been won, and you are now under grace. Jesus takes away the stress of performance and gives you the peace of grace.
+
+The grace of God has its own rhythms, and they’re easy and unforced. Under grace, you can enjoy life, knowing that each mistake is an opportunity to learn, and that it doesn’t count against you.
+
+This doesn’t mean that you live carelessly. Instead, you treat your life as a wonderful privilege that has been granted to you by Jesus, and you give your best for him.
+
+I invite you to enter into the “unforced rhythms of grace.” Discover what it means to be saved without the struggle: salvation made easy. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+I Am Who God Says I Am
+======================
+
+*See what great love the Father has lavished on us, that we should be called children of God!* - 1 John 3:1
+
+I believe in God because what he says about me is true. I am exactly who God says I am.
+
+Within myself I feel the stirrings of the noblest aspirations, yet my ability to reach these is sadly lacking. In spite of my greatest desires, I cannot, through my performance, be the person I want to be.
+
+    *The heart is deceitful above all things and beyond cure. Who can understand it?* Jeremiah 17:9
+    
+    *All have sinned and fall short of the glory of God.* Romans 3:23
+
+Every moment of guilt, doubt, or anxiety is evidence that what God says is the best explanation for who I am. But if I stopped there, it would be tragic! I am also profoundly and eternally loved, and so that I might never doubt it, God came down himself in the person of Jesus Christ, and gave his life for me. God calls you, not just his friend, but his child; not just acceptable, but perfect; not just a guest, but royalty in His kingdom. And that’s in spite of yourself, and all because of Jesus.
+
+I may have my ups and downs, but joy rules in my life, because I know who I am. And there is no better explanation for who I am, than the one Jesus gave me at the Cross. – Eliezer Gonzalez
+
 
 Back to top of: :ref:`eg-Reality`
+
+
+
+
+
+
 
 
 
@@ -2563,7 +2990,8 @@ Faith
 
 Seeing God For Yourself
 =======================
-*Blessed are those who have not seen and yet have believed* - John 20: 29
+
+*Blessed are those who have not seen and yet have believed.* - John 20: 29
 
 There’s no greater evidence than the evidence of your own eyes, or so they say. This is what Job affirmed after he had gone through all of his troubles,
 
@@ -2587,6 +3015,7 @@ It isn’t good enough to hear about God. We need to hear from God. And his mess
 
 Jesus Prayed For You
 ====================
+
 *Father, forgive them, for they do not know what they do.* - Luke 23:34, NKJV
 
 Because I’ve got relatives overseas, some of whom are elderly, I’ve had to say goodbye to them, knowing that I might never see them again. Our final words mean can mean a lot. Sometimes people pray.
@@ -2609,6 +3038,7 @@ It’s only human to doubt God sometimes, and to question whether he even thinks
 
 Jesus Prayed For You at Calvary
 ===============================
+
 *I have prayed for you ... that your faith may not fail.* - Luke 22:32
 
 Each of Christ’s seven last words on the Cross was a prayer on your behalf.
@@ -2651,6 +3081,7 @@ In each of these seven perfect prayers of Christ, you see His heart, and in Chri
 
 God Hears His Children
 ======================
+
 *When you pray, I will listen.* - Jeremiah 29:12
 
 It seems that the more connected we are with the world, the more disconnected we become from each other. People wander around, lost in a world of noise, and they wonder if anyone listens. We can upgrade our phones but we never seem to be able to upgrade our communication.
@@ -2669,8 +3100,8 @@ Jesus has an open-door policy: it’s called prayer. – Eliezer Gonzalez
     :width: 200px
 
 
-We Can Believe Even ...
-=======================
+We Can Believe Even...
+======================
 ... **in the Face of Mocking**
 
 *Don’t be afraid; just believe.* - Mark 5:36
@@ -2700,26 +3131,37 @@ That was when the real party began, as a mother and father received their daught
 Don’t allow unbelief to ruin the wonderful moments that Christ has in store for you. As Jesus said to Jairus, Don’t be afraid; just believe. – Eliezer Gonzalez
 
 
-You Get Free Fruit in the Kingdom
- 
-The Holy Spirit produces this kind of fruit in our lives: love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control (Galatians 5:22–23, NLT).
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Get Free Fruit...
+=====================
+... **in the Kingdom**
+
+*The Holy Spirit produces this kind of fruit in our lives: love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control.* - Galatians 5:22–23, NLT
 
 There’s a supermarket near where I live, where I often go to buy food. As you come in, there’s a basket full of apples, bananas and pears, and above it is a sign: “Free Fruit for Kids.” Paul tells us in Galatians 5:22–23 that God gives free fruit to his children as well.
 
 Although everyone is given different spiritual gifts (1 Corinthians 12:8–10, 29–31), every follower of Jesus receives the fruit of the Spirit, without distinction. After writing about the spiritual gifts, Paul says that there is something even better:
-I will show you the most excellent way (1 Corinthians 12:31).
 
-Then Paul goes on to write about the supreme importance of love, which is part of the fruit of the Spirit (1 Corinthians 13:13).
+    *I will show you the most excellent way.* 1 Corinthians 12:31
 
-The problem with the Corinthian church was that they were giving more importance to the gifts of the Spirit than to the fruit. We must be careful not to make the same mistake. (1 Corinthians 13:3).
+Then Paul goes on to write about the supreme importance of love, which is part of the fruit of the Spirit (1 Corinthians 13:13). The problem with the Corinthian church was that they were giving more importance to the gifts of the Spirit than to the fruit. We must be careful not to make the same mistake. (1 Corinthians 13:3).
 
 The gifts of the Spirit are wonderful! However the fruit is even better. The fruit is given to every follower of Jesus, and it is the fruit that distinguishes a Christian from a non-Christian (John 13:35). And best of all, it’s free!
 
 My favourite fruit is the fruit of the Spirit. – Eliezer Gonzalez
 
 
-Give Jesus ...
-==============
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Give Jesus...
+=============
 ... **Your Full Attention**
 
 *Fixing our eyes on Jesus...* - Hebrews 12:2, NASB
@@ -2756,6 +3198,28 @@ The idea of the individual is a Christian idea, and so is the whole idea of huma
 All of these things happened – in effect the establishment of western civilisation – because of Christians who believed that God had called them to be remarkable: people who represent the Kingdom of Heaven right here in this world.
 
 So, don’t let the world get you down. If you have the assurance of salvation, if you know that you’re going to live forever, then all bets are off, aren’t they? Your potential is limitless! – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+You Can Have an Overwhelming...
+===============================
+... **Assurance of Salvation**
+
+*"My sheep listen to my voice; I know them, and they follow me. I give them eternal life, and they shall never perish; no one will snatch them out of my hand. My Father, who has given them to me, is greater than all; no one can snatch them out of my Father’s hand. I and the Father are one."* - John 10:27–30, NIV
+
+Sometimes I don’t feel an overwhelming assurance of salvation. Feelings – whether mine or yours – are not a reliable guide to spiritual reality. The Bible describes many times what I can only call an “overwhelming assurance of salvation.” Look at Jesus’ words in John 10:27–31. Can Jesus have been more definitive or categorical than this?
+
+Jesus seals this promise with the identities of the Father and of the Son. If you trust in Jesus, there is *nothing and no-one in the universe* that can countermand the eternal life that Christ has given you. No one can snatch you out of his hand.
+
+The problem, however, is with my feelings!
+
+We have to understand that things like the love of God, forgiveness and salvation are **not** feelings. They are facts. Feelings themselves never determine the facts. Here is an example. If you jump out of an aeroplane without a parachute, you might feel that you are flying free as a bird, but that feeling will never change the fact of the law of gravity.
+
+The fact is that God has given his word. Your feelings have nothing to do with it. When we really understand that our salvation is based on Christ’s performance, rather than on our feelings, then we will certainly know the overwhelming assurance of salvation in Christ. – Eliezer Gonzalez
 
 
 
@@ -2842,6 +3306,7 @@ That’s a much better kind of celebration! – Eliezer Gonzalez
 
 The Cross Is An Invitation
 ==========================
+
 *We ... see Jesus ... crowned with glory and honour because He suffered death, so that by the grace of God, He might taste death for everyone.* - Hebrews 2:9, NIV
 
 I love to travel, and whenever I travel, I love to visit churches, especially those awe-inspiring cathedrals in Europe. I once drove from the Netherlands through Brussels, and right into southern France, and then back to the Netherlands, just to visit churches that I’d only ever seen in post-cards. And what was nuts about it was that I did it all in a weekend!
@@ -2862,8 +3327,8 @@ The essence of Christianity is not found in any building, but in a person, our S
     :width: 200px
 
 
-Jesus Turns Your Endings ...
-============================
+Jesus Turns Your Endings...
+===========================
 ... **Into New Beginnings**
 
 *I am the Alpha and the Omega, the First and the Last, the Beginning and the End.* - Revelation 22:13
@@ -2888,6 +3353,7 @@ If you believe in the One who is the First and the Last, the Beginning and the E
 
 God Fills Your Emptiness
 ========================
+
 *He has put eternity into man's heart.* - Ecclesiastes 3:11, ESV
 
 Did you know that the universe is 99.999% empty space? We can easily understand that as it applies to outer space, but did you know it also applies to our bodies? If that space were removed from all our bodies, the whole human race would take up the space of a sugar cube!
@@ -2910,6 +3376,7 @@ All those who have accepted salvation in Christ have no more empty space. If you
 
 Jesus is Your Saviour and Lord
 ==============================
+
 *God will give you a grand entrance into the eternal Kingdom of our Lord and Saviour Jesus Christ.* - 2 Peter 1:11
 
 It’s easy to just *say* “thank you”, without being truly grateful, but it’s often harder to show our gratitude.
@@ -2932,6 +3399,7 @@ Unlike those two blind men, are you grateful enough to let Jesus be both Saviour
 
 Remembering Keeps Your Faith Strong
 ===================================
+
 *Remember the things I have done in the past. For I alone am God!* - Isaiah 46:9 NLT
 
 God often tells us to remember, because he knows that we are prone to forget. Here are three things to remember that will help you get through tough times:
@@ -2964,6 +3432,7 @@ This world is like an obstacle course that tries to make us forget. We are only 
 
 Use What’s In Your Hand
 =======================
+
 *His disciples answered, “Where could we get enough bread in this remote place to feed such a crowd?” “How many loaves do you have?” Jesus asked.* – Matthew 15:32–34, NIV
 
 When Jesus suggested to the disciples that he wanted to feed the enormous crowd of 4,000 people by the lake, the disciples were full of excuses. Too often we are the same.
@@ -2986,6 +3455,7 @@ Check what’s in your hands today. In faith, offer it to Jesus. Then stand back
 
 Beyond Indoctrination
 =====================
+
 *"Go and learn what this means: ‘I desire mercy, not sacrifice.’ For I have not come to call the righteous, but sinners."*  – Matthew 9:13
 
 During approximatly 100 days between April 7 and mid-July 1994, it is estimated that between 500,000 and 1,000,000 Rwandans were killed, up to 70% of the Tutsi and 20% of Rwanda’s total population. This was the genocidal mass slaughter of the Tutsi minority and moderate Hutu, by members of the Hutu majority—many of them Christians.
@@ -3046,8 +3516,8 @@ Don’t worry about whether Jesus will recognise you or not. No matter how life 
     :width: 200px
 
 
-You Can Have ...
-================
+You Can Have...
+===============
 ... **an Overwhelming Assurance of Salvation**
 
 *I give them eternal life, and they will never perish. No one can snatch them away from me, for my Father has given them to me, and he is more powerful than anyone else. No one can snatch them from the Father’s hand.* - John 10:28–29, NLT
@@ -3091,16 +3561,13 @@ You and I must also kneel at the foot of the Cross, to be able to say, “By the
     :width: 200px
 
 
-You Must Eat Jesus’ Flesh ...
-=============================
+You Must Eat Jesus’ Flesh...
+============================
 ... **in the Kingdom**
 
 *I tell you the truth, unless you eat the flesh of the Son of Man and drink his blood, you cannot have eternal life within you.* - John 6:53, NLT
 
-Jesus said some things that were offensive within his own religion and culture.
-This verse above just one example.
-
-Soon after Christianity’s emergence, it was condemned within the Roman Empire as a dangerous new cult. Christians were accused of practising cannibalism by eating the body and drinking the blood of someone they called Christ. This was a misunderstanding of what is called the Lord’s Supper or the Eucharist.
+Jesus said some things that were offensive within his own religion and culture. This verse above just one example. Soon after Christianity’s emergence, it was condemned within the Roman Empire as a dangerous new cult. Christians were accused of practising cannibalism by eating the body and drinking the blood of someone they called Christ. This was a misunderstanding of what is called the Lord’s Supper or the Eucharist.
 
 When Jesus spoke about eating his flesh and drinking his blood, he was actually talking about true religion. What Jesus meant is that it's got to be personal. Jesus was saying that you don't receive eternal life by understanding concepts or by believing the right things, but instead by a personal and intimate relationship with him. Jesus must be more important to us than our very food and drink, and closer to us than the nourishment that courses through our body and gives us life.
 
@@ -3112,8 +3579,8 @@ This requirement for salvation offends our deepest need to consider ourselves to
     :width: 200px
 
 
-Jesus is Never Too Busy ...
-===========================
+Jesus is Never Too Busy...
+==========================
 ... **for You**
 
 *“Why are you sleeping?” he asked them. “Get up and pray so that you will not fall into temptation.”* - Luke 22:46, NIV
@@ -3152,8 +3619,8 @@ It’s vital for every child of God to make space in their lives for God. That�
     :width: 200px
 
 
-Beyond the Trappings ...
-========================
+Beyond the Trappings...
+=======================
 ... **of Christianity**
 
 *And when they had crucified him, they divided his garments among them by casting lots.* - Matthew 27:35, NIV
@@ -3186,6 +3653,99 @@ I used to think that was unique to Paul, because he was an apostle and a preache
 Not everyone has the gift of preaching.  Not everyone can be a missionary in faraway countries. But sharing the Gospel is not just about words. It’s all about what others see that you put first in your life. When you put God first, you will certainly make an impact for Jesus where he isn’t yet known.
 
 So, make Paul’s ambition your ambition: to preach the Gospel of Jesus Christ where he is not known. The greatest thing that you can ever achieve in this life is simply sharing the Gospel. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Gold Standard of Prayer
+===========================
+
+*Father, forgive them, for they do not know what they are doing.* - Luke 23:34, NIV
+
+You’ve heard that saying, “When the going gets tough, the tough get going”? Well, here’s another one: “When the going gets tough, the tough get praying.”
+
+It’s probably true that people, even non-religious types, are more likely to send up a prayer when it comes to crunch-time, and it’s life or death.
+
+I once had a friend who, believe it or not, used to regularly pray for God to strike down his enemies!  He got that from the Psalms, so it’s not entirely unbiblical. But it’s not the best kind of prayer. Christians call themselves “Christians” because they follow Jesus. Without doubt, Jesus’ toughest time was before and during his execution. 
+
+So, what did he pray for?
+ 
+His first prayer was for the forgiveness of those who had wronged him – that’s all of us. His final prayer was a profound expression of confidence in God.
+ 
+The most powerful prayer you can pray is an unselfish prayer. It’s a loving prayer for others. It’s a prayer that simply trusts in God. I don’t know what you pray for in tough times, but Jesus forever established the gold standard of what to pray for in tough times.
+
+It’s praying for the grace to forgive others, and for more strength to trust in God. – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Just Say Thank You
+==================
+
+*Give thanks to the Lord, for he is good; his love endures forever.* - 1 Chronicles 16:34, NIV
+
+It’s easy to take God for granted. It’s difficult enough to say thank you to people around us, who we can see, let alone remember to say thank you to God, whom we can’t see. And often we don’t pray “thank you” to God, because we don’t say “thank you” to others. We just aren’t in the habit of gratitude, full stop.
+
+I’m often prone to negative thoughts, and a good friend of mine suggested that I should keep a daily “gratitude journal,” in which I write down things for which I’m grateful. I’ve found that the more that I think about what I’m grateful for, the more grateful and positive I become! It’s like that with God as well.
+
+Think about how you act when you are really grateful to someone. You can’t do enough for them, can you? And you do it happily.
+ 
+Maybe relating to God isn’t so difficult after all... if you’re grateful.
+
+Perhaps the German theologian was right when he said, “If the only prayer you ever said in your whole life was ‘Thank you,’ that would be enough.”
+
+You know, God is good, all the time. You’ll be getting 86,400 seconds today. 
+
+Why don’t you use one or two of them to say thank you to God? – Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+Alone with God
+==============
+
+*"But when you pray, go away by yourself, shut the door behind you, and pray to your Father in private. Then your Father, who sees everything, will reward you."* - Matthew 6:6, NLT
+
+I’ve learnt that sometimes, whoever you are, you just have to be alone. And that’s true about prayer as well. I need to create space in my life to clarify my focus and my thoughts in prayer. I need to be able to hear God’s voice over the “busyness” of the world.
+ 
+Jesus often prayed just short, little micro-prayers. Like, he would be speaking to a crowd, and suddenly he would say something to his Father in heaven. But he also needed to spend blocks of time alone in prayer.
+
+When I was younger, prayer was something I did because I had been told it was something you had to do. It was a monologue that I sent up to God in the hope that reception was good on his end, and he would somehow receive it.
+
+But now, I’ve discovered what prayer really means. Perhaps you don’t really make that discovery until you come to the point where all earthly help is helpless, and you really do need God in your life. I’d even go as far as to say that some of my most memorable experiences in my life are things that only God and I know about, because they happened while I’ve been spending time in prayer alone.
+
+How about you? How do you connect? - Eliezer Gonzalez
+
+
+.. image:: ../images/Flourish02.png
+    :align: center
+    :width: 200px
+
+
+The Prayer You Shouldn’t Pray
+=============================
+
+*Have mercy on me, O God, according to your unfailing love.* - Psalm 51:1, NIV
+
+One really dumb thing I did as a teenager was to jump off a rock into the ocean, on a dare by my mates, only to find out later that it was infested with sharks there, and they knew it. True story! Some mates they were!
+
+But did you know that some of the greatest people in the Bible were also pretty dumb in their younger years? For example, in the 26th Psalm, written by King David, he asks God to accept him on the basis of the good life he has led.
+
+Can there be a more foolish attitude with which to approach God than this? That’s a prayer you should never pray. Everyone who approached Jesus on the basis of the merits of their lives was sent away empty-handed. But no-one who approached Jesus simply on the basis of their need failed to receive his mercy and blessing.
+
+Perhaps David in his youth, like me, had led a rather sheltered life. Many years later, like me, when life had knocked some sense into him, David learnt to pray based on God’s unfailing love and compassion (e.g. Psalm 51).
+       
+That’s the kind of prayer that we need to pray, because it’s the only basis of salvation and acceptance with God. – Eliezer Gonzalez
+
 
 
 
