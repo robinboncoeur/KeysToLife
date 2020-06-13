@@ -1261,6 +1261,14 @@ Back to top of: :ref:`df-GodsNature`
 
 
 
+
+
+
+
+
+
+
+
 .. image:: ../images/Flourish05c.png
     :align: right
     :width: 300px
@@ -2895,6 +2903,11 @@ Back to top of: :ref:`df-ChristOurSalvation`
 
 
 
+
+
+
+
+
 .. image:: ../images/Flourish05c.png
     :align: right
     :width: 300px
@@ -4038,11 +4051,54 @@ Trouble is, in fact, it is one of the most necessary parts of life. The worst ev
 
 However, the third and most important thing in this text is that it tells us that trouble makes us seek God. – Des Ford
 
+Back to top of: :ref:`df-ShouldWeLive`
 
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
+    :width: 300px
+
+
+.. _df-Redeemed:
+
+*****************************
+The Whole World Was Redeemed!
+*****************************
 
 You Have a Passport to the Kingdom
 ==================================
@@ -4478,9 +4534,7 @@ Paul wrote that as believers:
 
 This is the way – the only way – we can see the church. For the true church is the church invisible. – Des Ford
 
-
-Back to top of: :ref:`df-ShouldWeLive`
-
+Back to top of: :ref:`df-Redeemed`
 
 
 
@@ -4505,19 +4559,6 @@ Back to top of: :ref:`df-ShouldWeLive`
 
 
 
-
-
-
-
-
-
-
-
-
-
-.. image:: ../images/Flourish05c.png
-    :align: right
-    :width: 300px
 
 
 
@@ -5430,10 +5471,52 @@ At Calvary we see the almighty, pure, spotless, infinite One being made the offe
  
 The verse **doesn't** say, "If one died for all, all need not die." It says, "All died." **We died in him**. Therefore, you and I **have paid the penalty for all our sins, past, present, and future**. – Des Ford
 
+Back to top of: :ref:`df-OurFaithComes`
 
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
+    :width: 300px
+
+
+.. _df-Righteousness:
+
+************************
+Christ Our Righteousness
+************************
 
 
 Righteousness is by Faith
@@ -5502,20 +5585,6 @@ The more we do that, the more they will become more real to us than the material
     :align: center
     :width: 200px
 
-
-Back to top of: :ref:`df-OurFaithComes`
-
-
-
-
-
-
-
-
-
-
-Thoughts and Prayer that Mean It
-********************************
 
 God is a Soul Farmer
 ====================
@@ -5995,10 +6064,46 @@ But our Lord turned Black Friday into a Good Friday, because where there is no B
 
 There is no such thing as the Christian life without bearing the Cross. If we will accept the Cross, it will become like wings to a bird; it will become like sails to a ship. In lifting the Cross, we shall find that it lifts us. – Desmond Ford
 
+Back to top of: :ref:`df-Righteousness`
 
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
+    :width: 300px
+
+
+
+.. _df-Thoughts:
+
+******************************
+Thoughts and Prayers that Work
+******************************
 
 
 Christ Gives Your Life Meaning
@@ -7431,3 +7536,6 @@ You and I are so self-centred by nature, that although the whole world aches for
 .. image:: ../images/Flourish02.png
     :align: center
     :width: 200px
+
+
+Back to top of: :ref:`df-Thoughts`
