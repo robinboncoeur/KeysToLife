@@ -8,9 +8,7 @@ Writings by Eliezer Gonzalez
 The Gospel
 **********
 
-.. image:: ../images/Treemaze02a.jpg
-    :align: center
-    :width: 200px
+
 
 What's Wrong with the Gospel?
 =============================
