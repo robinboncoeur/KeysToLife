@@ -3,8 +3,18 @@ Writings by Desmond Ford
 ########################
 
 
+******************
 The Gospel Message
 ******************
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
+    :width: 300px
+
+
+
 
 .. _df-GospelMessage:
 
@@ -784,8 +794,41 @@ Back to top of: :ref:`df-GospelMessage`
 
 
 
-.. image:: ../images/Flourish03.png
-    :align: center
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
     :width: 300px
 
 
@@ -793,6 +836,7 @@ Back to top of: :ref:`df-GospelMessage`
 
 .. _df-GodsNature:
 
+*********************
 The Nature of Our God
 *********************
 
@@ -1187,8 +1231,38 @@ Back to top of: :ref:`df-GodsNature`
 
 
 
-.. image:: ../images/Flourish03.png
-    :align: center
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
     :width: 300px
 
 
@@ -1196,6 +1270,7 @@ Back to top of: :ref:`df-GodsNature`
 
 .. _df-ForByGrace:
 
+**************************
 For By Grace are You Saved
 **************************
 
@@ -1723,16 +1798,48 @@ Back to top of: :ref:`df-ForByGrace`
 
 
 
-
-.. image:: ../images/Flourish03.png
-    :align: center
+.. image:: ../images/Flourish05c.png
+    :align: right
     :width: 300px
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
 
 .. _df-ChristOurSalvation:
 
+********************
 Christ our Salvation
 ********************
 
@@ -2755,8 +2862,41 @@ Back to top of: :ref:`df-ChristOurSalvation`
 
 
 
-.. image:: ../images/Flourish03.png
-    :align: center
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
     :width: 300px
 
 
@@ -2764,6 +2904,7 @@ Back to top of: :ref:`df-ChristOurSalvation`
 
 .. _df-ShouldWeLive:
 
+**************************
 How, then, Should We Live?
 **************************
 
@@ -4343,8 +4484,39 @@ Back to top of: :ref:`df-ShouldWeLive`
 
 
 
-.. image:: ../images/Flourish03.png
-    :align: center
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+.. image:: ../images/Flourish05c.png
+    :align: right
     :width: 300px
 
 
@@ -4353,6 +4525,7 @@ Back to top of: :ref:`df-ShouldWeLive`
 
 .. _df-OurFaithComes:
 
+************************
 Our Faith comes from Him
 ************************
 
