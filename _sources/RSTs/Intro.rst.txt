@@ -2,8 +2,16 @@
 True Keys To Life
 #################
 
+************
 Introduction
 ************
+
+
+
+.. image:: ../images/Treemaze02a.jpg
+    :align: center
+    :width: 600px
+
 
 Why These Pages? 
 ================
@@ -98,8 +106,9 @@ This good news breaks the chain of guilt that enslaves, worries, and torments yo
 Therefore, there is now no condemnation for those who are in Christ Jesus (Romans 8:1).
 
 
-.. image:: ../images/Flourish03.png
-    :align: center
+
+.. image:: ../images/Flourish05c.png
+    :align: right
     :width: 300px
 
 
@@ -110,7 +119,7 @@ Therefore, there is now no condemnation for those who are in Christ Jesus (Roman
 
 
 
-
+******************
 Additional Writers
 ******************
 
@@ -369,12 +378,11 @@ Then, with the help of the Holy Spirit, I have been able to cling to him, to han
 
 
 Persist in Prayer  
-May 27, 2020 05:00 am  
- 
+=================
 
-Praying always with all prayer and supplication in the Spirit, being watchful to this end with all perseverance… (Eph 6:18, NKJV).
+*Praying always with all prayer and supplication in the Spirit, being watchful to this end with all perseverance...* - Ephesians 6:18
 
-It may seem to us from time to time that God delays in answering our prayers. Never think that this is a sign of his displeasure. It might even seem sometimes that he is hiding his face from his dearest saints (Isaiah 8:17). He loves to keep his people… knocking at the gate of heaven; it may be, says the soul, that the Lord is testing me…
+It may seem to us from time to time that God delays in answering our prayers. Never think that this is a sign of his displeasure. It might even seem sometimes that he is hiding his face from his dearest saints (Isaiah 8:17). He loves to keep his people… knocking at the gate of heaven; it may be, says the soul, that the Lord is testing me...
 
 Oh, it is sad that many of God’s followers, even those who truly love and trust the Lord, are often ready to give up hope, succumbing to the tricks and temptations of Satan! May the Lord help them to “pray with their spirit, and also with their minds.”
 
@@ -390,34 +398,3 @@ Then, with the help of the Holy Spirit, I have been able to cling to him, to han
     :width: 200px
 
 
-
-
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
-
-
-
-
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
-
-
-
-
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
-
-
-
-
-.. image:: ../images/Flourish02.png
-    :align: center
-    :width: 200px
-
-
-.. image:: ../images/Treemaze02a.jpg
-    :align: center
-    :width: 200px
