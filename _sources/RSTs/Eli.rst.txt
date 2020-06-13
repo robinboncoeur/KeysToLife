@@ -10,9 +10,9 @@ The Gospel
 
 
 
-.. image:: ../images/Treemaze02a.png
-    :align: center
-    :width: 600px
+.. image:: ../images/Flourish04c.png
+    :align: right
+    :width: 300px
     
 
 
@@ -553,7 +553,7 @@ Back to top of: :ref:`eg-TheGospel`
 
 
 
-.. image:: ../images/Flourish04b.png
+.. image:: ../images/Flourish04c.png
     :align: right
     :width: 300px
 
