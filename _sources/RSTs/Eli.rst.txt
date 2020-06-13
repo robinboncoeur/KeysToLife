@@ -4,6 +4,7 @@ Writings by Eliezer Gonzalez
 
 .. _eg-TheGospel:
 
+**********
 The Gospel
 **********
 
@@ -554,6 +555,7 @@ Back to top of: :ref:`eg-TheGospel`
 
 .. _eg-Forgiveness:
 
+***********
 Forgiveness
 ***********
 
@@ -1014,6 +1016,7 @@ Back to top of: :ref:`eg-Forgiveness`
 
 .. _eg-Challenges:
 
+******************
 Challenges of Life
 ******************
 
@@ -2098,6 +2101,7 @@ Back to top of: :ref:`eg-Challenges`
 
 .. _eg-Reality:
 
+******************
 The Reality of God
 ******************
 
@@ -2994,10 +2998,11 @@ Back to top of: :ref:`eg-Reality`
     :width: 300px
 
 
-.. _eg-Faith:
+.. _eg-Living:
 
-Faith
-*****
+***************
+Living in Faith
+***************
 
 Seeing God For Yourself
 =======================
@@ -3458,10 +3463,7 @@ Eventually, Peter learnt to completely trust in Jesus. And so, must we. Don’t 
 
 
 
-
-
-
-Back to top of: :ref:`eg-Faith`
+Back to top of: :ref:`eg-Living`
 
 
 
@@ -3509,6 +3511,7 @@ Back to top of: :ref:`eg-Faith`
 
 .. _eg-Christianity:
 
+******************
 Christianity Today
 ******************
 
@@ -4767,6 +4770,7 @@ Back to top of: :ref:`eg-Christianity`
 
 .. _eg-FromTheBlog:
 
+*************
 From the Blog
 *************
 
