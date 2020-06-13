@@ -418,3 +418,6 @@ Then, with the help of the Holy Spirit, I have been able to cling to him, to han
     :width: 200px
 
 
+.. image:: ../images/Treemaze02a.jpg
+    :align: center
+    :width: 200px
