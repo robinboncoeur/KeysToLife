@@ -6000,7 +6000,7 @@ There is no greater knowledge you can have than the simplicity of grace, no grea
 
 .. image:: ../images/MoorsRoad.jpg
     :align: center
-    :width: 200px
+    :width: 600px
     
 
 Knowing and Believing
@@ -6261,7 +6261,7 @@ That’s why, when it comes to God’s love for you and his salvation, you will 
 
 .. image:: ../images/NavigateUncert.jpg
     :align: center
-    :width: 200px
+    :width: 600px
 
 
 Receiving: The Hardest Work
@@ -6301,7 +6301,7 @@ But now I’ve started to learn what it means to receive, with the empty, open h
 
 .. image:: ../images/BoisDeBoulogne-23.jpg
     :align: center
-    :width: 200px
+    :width: 600px
 
 
 When You Can't Understand
@@ -6353,7 +6353,7 @@ When you’re in the confusing and darkest moments of your life, it’s good to 
 
 .. image:: ../images/Falls02.jpg
     :align: center
-    :width: 200px
+    :width: 600px
 
 
 
@@ -6401,7 +6401,7 @@ I’m glad that I don’t live in Gori. I’m glad there is a God. – Eliezer G
 
 .. image:: ../images/ParcSaintCloud-Bassin02.jpg
     :align: center
-    :width: 200px
+    :width: 600px
 
 
 Finding Jesus
@@ -6432,7 +6432,7 @@ Just like when he walked the earth, many people try to find Jesus today. He isn�
 
 .. image:: ../images/SunsetLake.jpg
     :align: center
-    :width: 200px
+    :width: 600px
 
 
 Power at Sunset
@@ -6459,7 +6459,7 @@ Because of Calvary, God sees you as his perfect, precious child, because the wor
 
 .. image:: ../images/ParcSaintCloud-Bassin01.jpg
     :align: center
-    :width: 200px
+    :width: 600px
 
 
 Jesus is Willing
