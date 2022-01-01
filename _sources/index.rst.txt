@@ -10,6 +10,7 @@ Keys To Life - Precious Devotionals
    :maxdepth: 2
    :caption: Contents:
 
+   RSTs/AudioBible.rst
    RSTs/Intro.rst
    RSTs/Des.rst
    RSTs/Eli.rst
