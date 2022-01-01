@@ -38,7 +38,7 @@ Romans 01
    </audio>
    
 
-.. image:: ../images/h-l.png
+.. image:: ../images/hl.png
     :align: center
     :width: 800px
 
@@ -54,7 +54,7 @@ Romans 09
    
 
 
-.. image:: ../images/h-l.png
+.. image:: ../images/hl.png
     :align: center
     :width: 800px
 
