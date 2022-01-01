@@ -1,6 +1,6 @@
-########################
-I Know In Whom I Believe
-########################
+###################
+Discussions - Audio
+###################
 
 ************
 Introduction
@@ -21,15 +21,7 @@ Des Ford's talks - talks I would save to .mp3 and listen to as I headed for work
 
 I have also "audified" devotional PDFs by Dr Ford. The voice, obviously, is not his: I hope folks don't find this approach too offputting: it was the pleasantest, least obstrusive I could find.
 
-The reader is invited to download these .mp3 files, save them to a memory stuck and listen to them. That's the whole idea.
-
-
-=======
-Updates
-=======
-01-Jan-2022: Converting Dr Ford's PDFs, posting these first.
-
-11-Dec-2021: I'm starting in Romans. Hopefully, this will grow.
+The reader is invited to download these .mp3 files, save them to a memory stick and listen to them. That's the whole idea.
 
 
 ********************************
@@ -46,25 +38,33 @@ Romans 01
    </audio>
    
 
-
-.. image:: ../images/Flourish02.png
+.. image:: ../images/h-l.png
     :align: center
     :width: 200px
 
 
-******
-Romans
-******
+Romans 09
 
 .. raw:: html
 
    <audio controls="controls">
-         <source src="_static/foo.mp3" type="audio/mp3">
+         <source src="https://www.tightbytes.com/audio/DesFord/DFRomans09.mp3" type="audio/mp3">
          Your browser does not support the <code>audio</code> element. 
    </audio>
    
 
 
-.. image:: ../images/Flourish02.png
+.. image:: ../images/h-l.png
     :align: center
     :width: 200px
+
+
+
+=======
+Updates
+=======
+01-Jan-2022: Converting Dr Ford's PDFs, posting these first.
+
+11-Dec-2021: I'm starting in Romans. Hopefully, this will grow.
+
+
