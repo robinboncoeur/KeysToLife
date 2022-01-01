@@ -40,7 +40,7 @@ Romans 01
 
 .. image:: ../images/hl.png
     :align: center
-    :width: 800px
+    :width: 600px
 
 
 Romans 09
@@ -56,7 +56,7 @@ Romans 09
 
 .. image:: ../images/hl.png
     :align: center
-    :width: 800px
+    :width: 600px
 
 
 
