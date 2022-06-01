@@ -1,0 +1,70 @@
+###################
+Discussions - Audio
+###################
+
+************
+Introduction
+************
+
+
+
+.. image:: ../images/Treemaze02a.jpg
+    :align: center
+    :width: 600px
+
+
+================
+Why These Pages? 
+================
+
+Des Ford's talks - talks I would save to .mp3 and listen to as I headed for work - have led me back to Scripture and the Good News, particularly the writings of Paul, who lays out why we believe in the Good News. I thought it might be a good idea to actually listen to Paul's writings themselves.
+
+I have also "audified" devotional PDFs by Dr Ford. The voice, obviously, is not his: I hope folks don't find this approach too offputting: it was the pleasantest, least obstrusive I could find.
+
+The reader is invited to download these .mp3 files, save them to a memory stick and listen to them. That's the whole idea.
+
+
+********************************
+Des Ford's Discussions on Romans
+********************************
+
+Romans 01
+
+.. raw:: html
+
+   <audio controls="controls">
+         <source src="https://www.tightbytes.com/audio/DesFord/DFRomans01.mp3" type="audio/mp3">
+         Your browser does not support the <code>audio</code> element.
+   </audio>
+   
+
+.. image:: ../images/hl.png
+    :align: center
+    :width: 600px
+
+
+Romans 09
+
+.. raw:: html
+
+   <audio controls="controls">
+         <source src="https://www.tightbytes.com/audio/DesFord/DFRomans09.mp3" type="audio/mp3">
+         Your browser does not support the <code>audio</code> element. 
+   </audio>
+   
+
+
+.. image:: ../images/hl.png
+    :align: center
+    :width: 600px
+
+
+
+=======
+Updates
+=======
+01-Jan-2022: Converting Dr Ford's PDFs, posting these first.
+
+11-Dec-2021: I'm starting in Romans. Hopefully, this will grow.
+
+
