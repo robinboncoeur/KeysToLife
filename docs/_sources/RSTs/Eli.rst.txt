@@ -8214,5 +8214,4 @@ We can restate it but never redefine it, we can magnify it but never augment it,
 
 
 
-
 Back to top of: :ref:`eg-Unlimited`
