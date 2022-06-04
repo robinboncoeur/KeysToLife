@@ -8,7 +8,7 @@ Introduction
 
 
 
-.. image:: ../images/Treemaze02a.jpg
+.. image:: https://www.tightbytes.com/images/pubimages/keystolife/Treemaze02a.jpg
     :align: center
     :width: 600px
 
@@ -38,7 +38,7 @@ Romans 01
    </audio>
    
 
-.. image:: ../images/hl.png
+.. image:: https://www.tightbytes.com/images/pubimages/keystolife/hl.png
     :align: center
     :width: 600px
 
@@ -54,7 +54,7 @@ Romans 09
    
 
 
-.. image:: ../images/hl.png
+.. image:: https://www.tightbytes.com/images/pubimages/keystolife/hl.png
     :align: center
     :width: 600px
 
