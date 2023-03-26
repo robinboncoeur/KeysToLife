@@ -14,6 +14,7 @@ Keys To Life - Precious Devotionals
    RSTs/Intro.rst
    RSTs/Des.rst
    RSTs/Eli.rst
+   RSTs/Romans.rst
    RSTs/Spurg.rst
 
 
